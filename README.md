@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
