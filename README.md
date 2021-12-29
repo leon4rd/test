@@ -1,1 +1,1 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
