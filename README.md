@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
