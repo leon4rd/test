@@ -1,1 +1,1 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## Don't tell secrets in corn fields. Too many ears around.
