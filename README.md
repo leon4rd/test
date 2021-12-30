@@ -1,1 +1,2 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## What is the best way to carve?
+## Whittle by whittle.
