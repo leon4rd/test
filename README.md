@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
