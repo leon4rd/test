@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What did one wall say to the other wall? I'll meet you at the corner!
