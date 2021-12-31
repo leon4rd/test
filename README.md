@@ -1,1 +1,2 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
