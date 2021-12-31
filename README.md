@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
