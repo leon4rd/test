@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## You can't trust a ladder. It will always let you down
