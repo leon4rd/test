@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
