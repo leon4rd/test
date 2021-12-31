@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## If two vegans are having an argument, is it still considered beef?
