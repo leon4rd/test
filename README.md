@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
