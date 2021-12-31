@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## Where do young cows eat lunch? In the calf-ateria.
