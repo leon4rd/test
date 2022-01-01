@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
