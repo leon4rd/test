@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
