@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
