@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
