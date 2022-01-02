@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## I decided to sell my Hoover… well it was just collecting dust.
