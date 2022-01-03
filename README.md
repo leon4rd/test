@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
