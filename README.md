@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Why are fish easy to weigh? Because they have their own scales.
