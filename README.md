@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
