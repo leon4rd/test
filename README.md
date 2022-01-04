@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
