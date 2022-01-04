@@ -1,1 +1,1 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
