@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
