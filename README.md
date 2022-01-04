@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
