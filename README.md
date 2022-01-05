@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## How come the stadium got hot after the game? Because all of the fans left.
