@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Did you hear about the two thieves who stole a calendar? They each got six months.
