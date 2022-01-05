@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## What's brown and sticky? A stick.
