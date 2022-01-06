@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
