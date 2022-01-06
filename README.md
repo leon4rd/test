@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
