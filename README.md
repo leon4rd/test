@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
