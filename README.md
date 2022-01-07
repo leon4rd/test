@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
