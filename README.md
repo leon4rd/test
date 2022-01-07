@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Slept like a log last night … woke up in the fireplace.
