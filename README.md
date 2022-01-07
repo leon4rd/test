@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## What do computers and air conditioners have in common? They both become useless when you open windows.
