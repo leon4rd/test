@@ -1,1 +1,1 @@
-## What do you call a girl between two posts? Annette.
+## I wouldn't buy anything with velcro. It's a total rip-off.
