@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## This furniture store keeps emailing me, all I wanted was one night stand!
