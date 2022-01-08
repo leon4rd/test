@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## Leather is great for sneaking around because it's made of hide.
