@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## What's orange and sounds like a parrot? A Carrot.
