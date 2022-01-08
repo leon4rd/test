@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## What did the digital clock say to the grandfather clock? Look, no hands!
