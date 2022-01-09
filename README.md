@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## What do you call an elephant that doesn’t matter? An irrelephant.
