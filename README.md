@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Why did the melons plan a big wedding? Because they cantaloupe!
