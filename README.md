@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## Why was the robot angry? Because someone kept pressing his buttons!
