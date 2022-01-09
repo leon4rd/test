@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
