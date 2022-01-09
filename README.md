@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## How do you make Lady Gaga cry? Poker face. 
