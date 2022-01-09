@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
