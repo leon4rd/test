@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
