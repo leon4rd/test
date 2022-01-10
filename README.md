@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
