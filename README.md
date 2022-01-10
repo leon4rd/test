@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## What does a clock do when it's hungry? It goes back four seconds!
