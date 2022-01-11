@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
