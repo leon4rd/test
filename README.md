@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
