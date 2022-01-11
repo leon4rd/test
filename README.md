@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
