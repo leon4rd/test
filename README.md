@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
