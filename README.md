@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
