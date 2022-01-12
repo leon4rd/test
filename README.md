@@ -1,1 +1,3 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
