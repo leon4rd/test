@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## Why do bees have sticky hair? Because they use honey combs!
