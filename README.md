@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
