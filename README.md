@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## What's black and white and read all over? The newspaper.
