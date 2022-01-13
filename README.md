@@ -1,1 +1,2 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
