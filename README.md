@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
