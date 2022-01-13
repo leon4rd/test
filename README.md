@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## An apple a day keeps the bullies away. If you throw it hard enough.
