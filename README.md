@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
