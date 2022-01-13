@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Why didn’t the skeleton cross the road? Because he had no guts.
