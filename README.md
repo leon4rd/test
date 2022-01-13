@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## A magician was driving down the street and then he turned into a driveway.
