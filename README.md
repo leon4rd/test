@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
