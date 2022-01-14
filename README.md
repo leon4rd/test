@@ -1,1 +1,3 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
