@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
