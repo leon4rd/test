@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What kind of award did the dentist receive? A little plaque.
