@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
