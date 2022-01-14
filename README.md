@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## What's the best thing about elevator jokes? They work on so many levels.
