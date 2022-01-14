@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
