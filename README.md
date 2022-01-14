@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
