@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## What does an angry pepper do? It gets jalapeño face.
