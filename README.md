@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Did you hear about the runner who was criticized? He just took it in stride
