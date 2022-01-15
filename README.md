@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## Why did the tree go to the dentist? It needed a root canal.
