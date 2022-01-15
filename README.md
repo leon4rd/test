@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
