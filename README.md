@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
