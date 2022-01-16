@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## What's blue and not very heavy?  Light blue.
