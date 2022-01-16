@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## What do you call a bear with no teeth? A gummy bear!
