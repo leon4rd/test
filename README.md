@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Where did Captain Hook get his hook? From a second hand store.
