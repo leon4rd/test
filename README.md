@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Why did the cookie cry? It was feeling crumby.
