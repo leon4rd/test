@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
