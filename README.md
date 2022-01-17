@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
