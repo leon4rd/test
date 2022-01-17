@@ -1,1 +1,2 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## What's the difference between a seal and a sea lion?
+## An ion! 
