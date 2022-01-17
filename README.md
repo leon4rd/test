@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## I thought about going on an all-almond diet. But that's just nuts.
