@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
