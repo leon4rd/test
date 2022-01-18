@@ -1,1 +1,3 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
