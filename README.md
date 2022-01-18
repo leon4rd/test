@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
