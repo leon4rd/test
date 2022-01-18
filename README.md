@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
