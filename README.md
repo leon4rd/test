@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
