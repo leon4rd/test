@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## A magician was driving down the street and then he turned into a driveway.
