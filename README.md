@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
