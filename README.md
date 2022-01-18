@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## What kind of pants do ghosts wear? Boo jeans.
