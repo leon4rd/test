@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
