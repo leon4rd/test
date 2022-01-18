@@ -1,1 +1,1 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
