@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
