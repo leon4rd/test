@@ -1,1 +1,2 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
