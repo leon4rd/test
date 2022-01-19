@@ -1,1 +1,1 @@
-## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
