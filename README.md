@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## What did the grape do when he got stepped on? He let out a little wine.
