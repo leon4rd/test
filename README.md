@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
