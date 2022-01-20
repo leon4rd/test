@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
