@@ -1,1 +1,1 @@
-## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
