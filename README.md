@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
