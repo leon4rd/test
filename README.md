@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
