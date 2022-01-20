@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## I used to be addicted to soap, but I'm clean now.
