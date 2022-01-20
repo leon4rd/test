@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
