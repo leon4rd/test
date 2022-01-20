@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Why is the ocean always blue? Because the shore never waves back.
