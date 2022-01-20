@@ -1,1 +1,1 @@
-## I think circles are pointless.
+## Remember, the best angle to approach a problem from is the "try" angle.
