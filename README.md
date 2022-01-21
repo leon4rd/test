@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## I wouldn't buy anything with velcro. It's a total rip-off.
