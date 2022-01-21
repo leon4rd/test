@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## I ordered a chicken and an egg from Amazon. I'll let you know.
