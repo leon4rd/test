@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Don't tell secrets in corn fields. Too many ears around.
