@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
