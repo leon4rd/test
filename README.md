@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## How do you make a hankie dance? Put a little boogie in it.
