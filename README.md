@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## I was thinking about moving to Moscow but there is no point Russian into things.
