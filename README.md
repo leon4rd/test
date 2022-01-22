@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
