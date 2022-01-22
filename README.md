@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
