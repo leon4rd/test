@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## I'll tell you what often gets over looked... garden fences.
