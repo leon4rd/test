@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
