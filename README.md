@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Is the pool safe for diving? It deep ends.
