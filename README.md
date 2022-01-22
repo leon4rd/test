@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
