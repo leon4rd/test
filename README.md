@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
