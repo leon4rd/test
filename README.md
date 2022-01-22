@@ -1,1 +1,1 @@
-## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
