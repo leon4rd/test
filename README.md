@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
