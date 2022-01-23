@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
