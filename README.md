@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Why do fish live in salt water? Because pepper makes them sneeze!
