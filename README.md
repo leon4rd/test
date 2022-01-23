@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
