@@ -1,1 +1,1 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## What creature is smarter than a talking parrot? A spelling bee.
