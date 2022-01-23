@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
