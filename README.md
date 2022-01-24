@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## What's brown and sticky? A stick.
