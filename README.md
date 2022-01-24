@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## What did one plate say to the other plate? Dinner is on me!
