@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Why did the octopus beat the shark in a fight? Because it was well armed.
