@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Why can't a bicycle stand on its own? It's two-tired.
