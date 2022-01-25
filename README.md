@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
