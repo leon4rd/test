@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## When is a door not a door? When it's ajar.
