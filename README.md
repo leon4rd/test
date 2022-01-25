@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## Why is the ocean always blue? Because the shore never waves back.
