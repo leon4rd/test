@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## I considered building the patio by myself. But I didn't have the stones.
