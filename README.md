@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## What kind of tree fits in your hand? A palm tree!
