@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
