@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
