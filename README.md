@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Why do crabs never give to charity? Because they’re shellfish.
