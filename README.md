@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## What do you call a boomerang that won't come back? A stick.
