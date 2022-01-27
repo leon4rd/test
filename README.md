@@ -1,1 +1,2 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## What did the green grape say to the purple grape?
+## BREATH!!
