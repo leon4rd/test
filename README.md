@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## What do you do when your bunny gets wet? You get your hare dryer.
