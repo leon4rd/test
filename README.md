@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Why are ghosts bad liars? Because you can see right through them!
