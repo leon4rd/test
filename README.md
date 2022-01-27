@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
