@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
