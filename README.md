@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Why do choirs keep buckets handy? So they can carry their tune
