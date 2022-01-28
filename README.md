@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
