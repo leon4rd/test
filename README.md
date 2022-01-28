@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Do you know where you can get chicken broth in bulk? The stock market.
