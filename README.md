@@ -1,1 +1,1 @@
-## How many apples grow on a tree? All of them!
+## Thanks for explaining the word "many" to me. It means a lot.
