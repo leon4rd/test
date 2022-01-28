@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
