@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## Where did you learn to make ice cream? Sunday school.
