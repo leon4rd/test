@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## How can you tell a vampire has a cold? They start coffin.
