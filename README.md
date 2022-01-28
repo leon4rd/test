@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Is the pool safe for diving? It deep ends.
