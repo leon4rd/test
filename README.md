@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## Why do you never see elephants hiding in trees? Because they're so good at it.
