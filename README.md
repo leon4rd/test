@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## How come a man driving a train got struck by lightning? He was a good conductor.
