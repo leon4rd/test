@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
