@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## What do you call a boomerang that won't come back? A stick.
