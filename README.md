@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## What do you get when you cross a chicken with a skunk? A fowl smell!
