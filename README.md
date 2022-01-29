@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## I used to be a banker, but I lost interest.
