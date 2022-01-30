@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
