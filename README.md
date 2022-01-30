@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## I gave all my dead batteries away today, free of charge.
