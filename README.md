@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
