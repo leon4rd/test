@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
