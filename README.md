@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## What time did the man go to the dentist? Tooth hurt-y.
