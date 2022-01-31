@@ -1,1 +1,3 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
+## 
+## So, I got a job at a travel agency.  Now, I know I'll be going places.
