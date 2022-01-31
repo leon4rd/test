@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## What did one nut say as he chased another nut?  I'm a cashew!
