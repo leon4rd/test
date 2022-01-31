@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## Ever wondered why bees hum? It's because they don't know the words.
