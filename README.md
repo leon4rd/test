@@ -1,1 +1,1 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
