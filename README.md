@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Why didn’t the skeleton cross the road? Because he had no guts.
