@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
