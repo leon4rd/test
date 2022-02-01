@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## When do doctors get angry? When they run out of patients.
