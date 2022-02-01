@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## "I'll call you later." Don't call me later, call me Dad.
