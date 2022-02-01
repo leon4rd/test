@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## I decided to sell my Hoover… well it was just collecting dust.
