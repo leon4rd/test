@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
