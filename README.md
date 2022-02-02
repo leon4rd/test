@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
