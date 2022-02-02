@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
