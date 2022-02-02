@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## How come a man driving a train got struck by lightning? He was a good conductor.
