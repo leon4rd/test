@@ -1,3 +1,3 @@
-## What is the difference between ignorance and apathy?
+## What's the worst part about being a cross-eyed teacher?
 ## 
-## I don't know and I don't care.
+## They can't control their pupils.
