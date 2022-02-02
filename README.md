@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Why are fish easy to weigh? Because they have their own scales.
