@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
