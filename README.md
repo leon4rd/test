@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
