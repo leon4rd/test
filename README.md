@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## How many bones are in the human hand? A handful of them.
