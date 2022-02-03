@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Want to hear a joke about construction? Nah, I'm still working on it.
