@@ -1,1 +1,1 @@
-## What do you call a pile of cats?  A Meowtain.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
