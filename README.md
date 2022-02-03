@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
