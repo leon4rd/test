@@ -1,3 +1,2 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## What do you do when you see a space man?
+## Park your car, man.
