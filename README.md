@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## What did the digital clock say to the grandfather clock? Look, no hands!
