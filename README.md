@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## The best time on a clock is 6:30--hands down.
