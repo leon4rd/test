@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## What is a vampire's favorite fruit? A blood orange.
