@@ -1,2 +1,3 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
