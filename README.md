@@ -1,1 +1,2 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## Why did the cookie cry?
+## Because his mother was a wafer so long
