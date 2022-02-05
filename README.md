@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Don't tell secrets in corn fields. Too many ears around.
