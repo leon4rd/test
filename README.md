@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## What did the fish say when it swam into a wall? Damn!
