@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
