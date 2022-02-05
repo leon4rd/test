@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## What did one plate say to the other plate? Dinner is on me!
