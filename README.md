@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## Why did the melons plan a big wedding? Because they cantaloupe!
