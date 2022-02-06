@@ -1,1 +1,2 @@
-## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
