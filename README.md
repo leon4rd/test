@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
