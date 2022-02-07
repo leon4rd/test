@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
