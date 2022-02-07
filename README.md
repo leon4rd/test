@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
