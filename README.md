@@ -1,1 +1,2 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
