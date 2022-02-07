@@ -1,1 +1,2 @@
-## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
