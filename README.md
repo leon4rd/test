@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## What did one wall say to the other wall? I'll meet you at the corner!
