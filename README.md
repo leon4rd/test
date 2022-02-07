@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
