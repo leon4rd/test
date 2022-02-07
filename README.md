@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Where do rabbits go after they get married? On a bunny-moon.
