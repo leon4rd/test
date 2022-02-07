@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
