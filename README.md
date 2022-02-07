@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
