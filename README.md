@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## What do you call a boomerang that won't come back? A stick.
