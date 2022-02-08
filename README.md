@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Did you know that ghosts call their true love their ghoul-friend?
