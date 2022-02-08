@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
