@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## What do you call a sheep with no legs? A cloud.
