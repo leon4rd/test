@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
