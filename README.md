@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
