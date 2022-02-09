@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## I have kleptomania, but when it gets bad, I take something for it.
