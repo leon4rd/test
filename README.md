@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Why do bees hum? Because they don't know the words.
