@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
