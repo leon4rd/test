@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## I considered building the patio by myself. But I didn't have the stones.
