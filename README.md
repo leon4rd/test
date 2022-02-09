@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## How does the moon cut his hair? Eclipse it.
