@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
