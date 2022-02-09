@@ -1,1 +1,2 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
