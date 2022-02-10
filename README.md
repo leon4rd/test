@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Why do mathematicians hate the U.S.? Because it's indivisible.
