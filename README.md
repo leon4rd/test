@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## Did you hear about the two thieves who stole a calendar? They each got six months.
