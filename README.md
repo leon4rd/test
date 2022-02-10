@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## I’m on a whiskey diet. I’ve lost three days already.
