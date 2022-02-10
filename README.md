@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
