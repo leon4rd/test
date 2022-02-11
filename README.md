@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
