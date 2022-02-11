@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## Why did the melons plan a big wedding? Because they cantaloupe!
