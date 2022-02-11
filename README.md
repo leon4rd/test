@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## I just broke my guitar. It's okay, I won't fret
