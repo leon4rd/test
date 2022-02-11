@@ -1,1 +1,1 @@
-## I was so proud when I finished the puzzle in six months, when on the side it said three to four years.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
