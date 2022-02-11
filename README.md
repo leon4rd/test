@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
