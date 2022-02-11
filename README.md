@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
