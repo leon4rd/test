@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## What do you call a droid that takes the long way around? R2 detour.
