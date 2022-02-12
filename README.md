@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## What kind of tree fits in your hand? A palm tree!
