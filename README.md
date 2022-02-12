@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## A termite walks into a bar and asks “Is the bar tender here?”
