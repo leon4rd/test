@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
