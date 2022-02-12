@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Why did the kid throw the clock out the window? He wanted to see time fly!
