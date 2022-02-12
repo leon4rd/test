@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## What do you call a bear with no teeth? A gummy bear!
