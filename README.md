@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
