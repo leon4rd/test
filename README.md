@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
