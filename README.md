@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
