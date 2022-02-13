@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
