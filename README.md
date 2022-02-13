@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## My first time using an elevator was an uplifting experience. The second time let me down.
