@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
