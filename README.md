@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## Thanks for explaining the word "many" to me. It means a lot.
