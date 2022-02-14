@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
