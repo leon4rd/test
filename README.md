@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
