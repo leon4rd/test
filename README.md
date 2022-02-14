@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
