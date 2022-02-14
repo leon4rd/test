@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
