@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
