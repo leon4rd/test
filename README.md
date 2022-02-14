@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What do you get when you cross a bee and a sheep? A bah-humbug.
