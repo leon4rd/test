@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## What musical instrument is found in the bathroom? A tuba toothpaste.
