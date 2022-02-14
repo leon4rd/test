@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
