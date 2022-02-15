@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
