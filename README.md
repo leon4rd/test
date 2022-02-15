@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
