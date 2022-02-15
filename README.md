@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
