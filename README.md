@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## How are false teeth like stars? They come out at night!
