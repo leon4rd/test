@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
