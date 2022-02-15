@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
