@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Why do fish live in salt water? Because pepper makes them sneeze!
