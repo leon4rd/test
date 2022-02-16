@@ -1,1 +1,2 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
