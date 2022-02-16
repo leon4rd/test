@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
