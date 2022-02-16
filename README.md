@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
