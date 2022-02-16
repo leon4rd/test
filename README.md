@@ -1,1 +1,2 @@
-## How does a dyslexic poet write? Inverse.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
