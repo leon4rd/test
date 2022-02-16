@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## What do you call a boomerang that won't come back? A stick.
