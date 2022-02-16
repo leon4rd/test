@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
