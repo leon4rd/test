@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
