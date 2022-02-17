@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
