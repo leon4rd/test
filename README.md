@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
