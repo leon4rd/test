@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
