@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
