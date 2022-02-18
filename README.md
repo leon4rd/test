@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
