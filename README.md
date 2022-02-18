@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Chances are if you' ve seen one shopping center, you've seen a mall.
