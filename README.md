@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## This morning I was wondering where the sun was, but then it dawned on me.
