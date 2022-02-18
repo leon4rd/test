@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
