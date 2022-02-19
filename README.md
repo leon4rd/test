@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## What did the digital clock say to the grandfather clock? Look, no hands!
