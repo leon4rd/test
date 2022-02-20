@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## I got fired from a florist, apparently I took too many leaves.
