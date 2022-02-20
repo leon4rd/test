@@ -1,1 +1,1 @@
-## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
