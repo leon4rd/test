@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
