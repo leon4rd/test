@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## I thought about going on an all-almond diet. But that's just nuts.
