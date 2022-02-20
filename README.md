@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Where do you learn to make banana splits? At sundae school.
