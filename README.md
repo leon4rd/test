@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
