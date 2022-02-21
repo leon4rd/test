@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
