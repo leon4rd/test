@@ -1,1 +1,2 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
