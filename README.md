@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
