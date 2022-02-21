@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## People are making apocalypse jokes like there’s no tomorrow.
