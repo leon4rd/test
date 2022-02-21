@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## What do you call a troublesome Canadian high schooler? A poutine.
