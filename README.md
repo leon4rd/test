@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
