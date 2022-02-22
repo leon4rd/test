@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
