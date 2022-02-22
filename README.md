@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## I’m on a whiskey diet. I’ve lost three days already.
