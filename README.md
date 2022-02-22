@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
