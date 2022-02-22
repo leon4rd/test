@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## Why do fish live in salt water? Because pepper makes them sneeze!
