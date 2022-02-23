@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Why is no one friends with Dracula? Because he's a pain in the neck.
