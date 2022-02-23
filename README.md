@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
