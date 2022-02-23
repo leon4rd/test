@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
