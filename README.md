@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## I got fired from a florist, apparently I took too many leaves.
