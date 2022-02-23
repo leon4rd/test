@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## I met this girl on a dating site and, I don't know, we just clicked.
