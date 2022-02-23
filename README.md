@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## What's black and white and read all over? The newspaper.
