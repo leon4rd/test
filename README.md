@@ -1,1 +1,1 @@
-## I met this girl on a dating site and, I don't know, we just clicked.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
