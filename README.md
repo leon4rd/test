@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
