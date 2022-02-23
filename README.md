@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
