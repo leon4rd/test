@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
