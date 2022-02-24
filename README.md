@@ -1,1 +1,2 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
