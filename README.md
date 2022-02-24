@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Why did the chicken get a penalty? For fowl play.
