@@ -1,7 +1,1 @@
-## Wife: Honey I’m pregnant.
-## 
-## Me: Well…. what do we do now?
-## 
-## Wife: Well, I guess we should go to a baby doctor.
-## 
-## Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
