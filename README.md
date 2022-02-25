@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
