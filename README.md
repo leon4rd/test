@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
