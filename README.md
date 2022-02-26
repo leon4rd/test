@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
