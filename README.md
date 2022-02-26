@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## Why are mummys scared of vacation? They're afraid to unwind.
