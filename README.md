@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## How does Darth Vader like his toast? On the dark side.
