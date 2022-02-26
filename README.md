@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## What does a clock do when it's hungry? It goes back four seconds!
