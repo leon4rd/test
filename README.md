@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why are graveyards so noisy? Because of all the coffin.
