@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
