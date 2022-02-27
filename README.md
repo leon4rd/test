@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
