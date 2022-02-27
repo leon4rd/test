@@ -1,1 +1,2 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## What is the best way to carve?
+## Whittle by whittle.
