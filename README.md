@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
