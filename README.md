@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
