@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## I used to work for a soft drink can crusher. It was soda pressing.
