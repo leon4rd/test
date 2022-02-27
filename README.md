@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
