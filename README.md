@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
