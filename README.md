@@ -1,1 +1,1 @@
-## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
