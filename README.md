@@ -1,1 +1,2 @@
-## I gave all my dead batteries away today, free of charge.
+## What is red and smells like blue paint?
+## Red paint!
