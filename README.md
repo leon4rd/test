@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## I gave all my dead batteries away today, free of charge.
