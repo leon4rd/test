@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
