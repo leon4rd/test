@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
