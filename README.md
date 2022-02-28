@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Without geometry life is pointless.
