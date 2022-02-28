@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What did one nut say as he chased another nut?  I'm a cashew!
