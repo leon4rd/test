@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## You can't run through a camp site. You can only ran, because it's past tents.
