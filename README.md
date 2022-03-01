@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
