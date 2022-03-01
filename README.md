@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
