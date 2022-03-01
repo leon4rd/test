@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## What's orange and sounds like a parrot? A Carrot.
