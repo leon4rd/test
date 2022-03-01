@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
