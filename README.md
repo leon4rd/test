@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
