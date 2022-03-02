@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## “My Dog has no nose.” “How does he smell?” “Awful”
