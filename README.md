@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
