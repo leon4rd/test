@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## It doesn't matter how much you push the envelope. It will still be stationary.
