@@ -1,1 +1,2 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## What is the best way to carve?
+## Whittle by whittle.
