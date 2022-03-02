@@ -1,1 +1,2 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
