@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
