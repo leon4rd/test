@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
