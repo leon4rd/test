@@ -1,1 +1,3 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
