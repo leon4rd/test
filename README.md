@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## What did the fish say when it swam into a wall? Damn!
