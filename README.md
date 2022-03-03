@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
