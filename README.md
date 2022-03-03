@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
