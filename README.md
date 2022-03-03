@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
