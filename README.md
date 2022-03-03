@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Our wedding was so beautiful, even the cake was in tiers.
