@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
