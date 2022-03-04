@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## I’ll tell you something about German sausages, they’re the wurst
