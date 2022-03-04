@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
