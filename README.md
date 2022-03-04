@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
