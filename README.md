@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Atheism is a non-prophet organisation.
