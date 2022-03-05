@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
