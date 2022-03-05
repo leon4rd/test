@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## What kind of bagel can fly? A plain bagel.
