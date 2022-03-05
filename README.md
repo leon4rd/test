@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
