@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
