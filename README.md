@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Don't tell secrets in corn fields. Too many ears around.
