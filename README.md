@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
