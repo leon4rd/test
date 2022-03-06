@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
