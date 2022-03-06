@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Why are skeletons so calm? Because nothing gets under their skin.
