@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
