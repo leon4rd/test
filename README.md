@@ -1,1 +1,2 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What is the best way to carve?
+## Whittle by whittle.
