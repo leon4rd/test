@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Where did Captain Hook get his hook? From a second hand store.
