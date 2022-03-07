@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Where do young cows eat lunch? In the calf-ateria.
