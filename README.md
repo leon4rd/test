@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Whoever invented the knock-knock joke should get a no bell prize.
