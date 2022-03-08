@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
