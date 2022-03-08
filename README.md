@@ -1,1 +1,3 @@
-## What do you call a bee that lives in America? A USB.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
