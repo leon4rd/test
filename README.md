@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## I met this girl on a dating site and, I don't know, we just clicked.
