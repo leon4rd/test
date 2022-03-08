@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## I couldn't get a reservation at the library. They were completely booked.
