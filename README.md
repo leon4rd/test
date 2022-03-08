@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## You can't run through a camp site. You can only ran, because it's past tents.
