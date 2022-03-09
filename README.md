@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
