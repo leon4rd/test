@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## What kind of award did the dentist receive? A little plaque.
