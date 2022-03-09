@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## I just wrote a book on reverse psychology. Do not read it!
