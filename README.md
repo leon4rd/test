@@ -1,1 +1,2 @@
-## Past, present, and future walked into a bar.... It was tense.
+## What is red and smells like blue paint?
+## Red paint!
