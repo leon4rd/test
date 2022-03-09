@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## What do you call a duck that gets all A's? A wise quacker.
