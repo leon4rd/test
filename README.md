@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## People who don't eat gluten are really going against the grain.
