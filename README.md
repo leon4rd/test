@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
