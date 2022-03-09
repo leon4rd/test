@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## How much does a hipster weigh? An instagram.
