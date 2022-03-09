@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
