@@ -1,1 +1,2 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
