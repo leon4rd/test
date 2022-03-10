@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## What do you do when your bunny gets wet? You get your hare dryer.
