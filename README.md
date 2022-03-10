@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
