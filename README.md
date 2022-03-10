@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## What creature is smarter than a talking parrot? A spelling bee.
