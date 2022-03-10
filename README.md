@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## What did the digital clock say to the grandfather clock? Look, no hands!
