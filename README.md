@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
