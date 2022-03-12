@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
