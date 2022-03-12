@@ -1,1 +1,2 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## What is red and smells like blue paint?
+## Red paint!
