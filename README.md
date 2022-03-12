@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## How many South Americans does it take to change a lightbulb? A Brazilian
