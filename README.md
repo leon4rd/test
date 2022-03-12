@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
