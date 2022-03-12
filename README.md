@@ -1,1 +1,1 @@
-## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
