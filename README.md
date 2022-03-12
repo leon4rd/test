@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
