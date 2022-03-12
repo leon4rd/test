@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
