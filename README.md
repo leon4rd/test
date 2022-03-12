@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
