@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
