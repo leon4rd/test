@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
