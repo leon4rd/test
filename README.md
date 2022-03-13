@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Where did Captain Hook get his hook? From a second hand store.
