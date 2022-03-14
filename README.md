@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## What creature is smarter than a talking parrot? A spelling bee.
