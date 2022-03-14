@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Where do young cows eat lunch? In the calf-ateria.
