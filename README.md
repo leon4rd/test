@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
