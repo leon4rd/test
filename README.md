@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Why do crabs never give to charity? Because they’re shellfish.
