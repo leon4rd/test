@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## What's brown and sticky? A stick.
