@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## When you have a bladder infection, urine trouble.
