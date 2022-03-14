@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
