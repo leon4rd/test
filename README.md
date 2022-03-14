@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## The rotation of earth really makes my day.
