@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
