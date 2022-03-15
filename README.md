@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## Me and my mates are in a band called Duvet. We're a cover band.
