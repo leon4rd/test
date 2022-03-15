@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
