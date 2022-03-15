@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
