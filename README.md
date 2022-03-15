@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## My first time using an elevator was an uplifting experience. The second time let me down.
