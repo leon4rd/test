@@ -1,1 +1,2 @@
-## I am so good at sleeping I can do it with my eyes closed!
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
