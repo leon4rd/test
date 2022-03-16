@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
