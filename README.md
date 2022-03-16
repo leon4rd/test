@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
