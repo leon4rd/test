@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
