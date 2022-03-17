@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
