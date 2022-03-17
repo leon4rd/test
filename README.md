@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
