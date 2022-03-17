@@ -1,1 +1,2 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
