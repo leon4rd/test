@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
