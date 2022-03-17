@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
