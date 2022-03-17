@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
