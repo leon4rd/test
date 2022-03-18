@@ -1,1 +1,1 @@
-## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
