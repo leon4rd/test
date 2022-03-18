@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## What did the grape do when he got stepped on? He let out a little wine.
