@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## What did one plate say to the other plate? Dinner is on me!
