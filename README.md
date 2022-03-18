@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## How come a man driving a train got struck by lightning? He was a good conductor.
