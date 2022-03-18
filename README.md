@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
