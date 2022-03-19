@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
