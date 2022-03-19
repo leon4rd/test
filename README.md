@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
