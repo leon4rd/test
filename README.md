@@ -1,1 +1,1 @@
-## Why does it take longer to get from 1st to 2nd base, than it does to get from 2nd to 3rd base? Because there’s a Shortstop in between!
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
