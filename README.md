@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
