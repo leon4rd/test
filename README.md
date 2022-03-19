@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
