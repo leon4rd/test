@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Don't trust atoms. They make up everything.
