@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What is the hardest part about sky diving? The ground.
