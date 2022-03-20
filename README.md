@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## I just broke my guitar. It's okay, I won't fret
