@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
