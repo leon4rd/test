@@ -1,1 +1,1 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## I’m on a whiskey diet. I’ve lost three days already.
