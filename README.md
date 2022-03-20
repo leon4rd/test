@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
