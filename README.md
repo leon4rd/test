@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## What did the piece of bread say to the knife? Butter me up.
