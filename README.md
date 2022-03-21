@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
