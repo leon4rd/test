@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
