@@ -1,1 +1,2 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## What is red and smells like blue paint?
+## Red paint!
