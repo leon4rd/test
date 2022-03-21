@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## Writing with a broken pencil is pointless.
