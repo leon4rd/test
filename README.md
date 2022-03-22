@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
