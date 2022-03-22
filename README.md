@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
