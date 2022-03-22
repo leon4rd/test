@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
