@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## What do prisoners use to call each other? Cell phones.
