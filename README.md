@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
