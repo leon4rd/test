@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
