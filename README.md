@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## I considered building the patio by myself. But I didn't have the stones.
