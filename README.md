@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
