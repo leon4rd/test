@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## What animal is always at a game of cricket? A bat.
