@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
