@@ -1,1 +1,1 @@
-## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
+## What did the ocean say to the shore? Nothing, it just waved.
