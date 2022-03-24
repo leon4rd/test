@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## Whoever invented the knock-knock joke should get a no bell prize.
