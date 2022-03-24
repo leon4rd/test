@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Coffee has a tough time at my house, every morning it gets mugged.
