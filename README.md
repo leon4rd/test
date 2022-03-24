@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
