@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Don't trust atoms. They make up everything.
