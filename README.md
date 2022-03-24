@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## When does a joke become a dad joke? When it becomes apparent.
