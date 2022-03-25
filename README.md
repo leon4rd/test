@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
