@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Thanks for explaining the word "many" to me. It means a lot.
