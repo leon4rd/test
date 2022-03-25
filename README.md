@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## How do you get a baby alien to sleep?  You rocket.
