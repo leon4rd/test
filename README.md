@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## Why did the tree go to the dentist? It needed a root canal.
