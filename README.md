@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Why are mummys scared of vacation? They're afraid to unwind.
