@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Where do rabbits go after they get married? On a bunny-moon.
