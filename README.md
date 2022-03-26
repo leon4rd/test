@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## You can't run through a camp site. You can only ran, because it's past tents.
