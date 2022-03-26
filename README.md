@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
