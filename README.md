@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
