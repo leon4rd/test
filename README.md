@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## There's not really any training for garbagemen. They just pick things up as they go.
