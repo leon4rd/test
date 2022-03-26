@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
