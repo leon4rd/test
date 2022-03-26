@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
