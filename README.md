@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## What did the Red light say to the Green light? Don't look at me I'm changing!
