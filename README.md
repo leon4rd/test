@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
