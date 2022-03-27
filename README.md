@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
