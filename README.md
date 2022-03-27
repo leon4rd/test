@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## A steak pun is a rare medium well done.
