@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## What do bees do after they are married? They go on a honeymoon.
