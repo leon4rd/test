@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
