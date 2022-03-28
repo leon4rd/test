@@ -1,1 +1,3 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
