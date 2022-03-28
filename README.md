@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## I thought about going on an all-almond diet. But that's just nuts.
