@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
