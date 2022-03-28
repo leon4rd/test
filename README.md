@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## I was in an 80's band called the prevention. We were better than the cure.
