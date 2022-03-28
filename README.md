@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
