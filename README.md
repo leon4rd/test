@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
