@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
