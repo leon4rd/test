@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## How come a man driving a train got struck by lightning? He was a good conductor.
