@@ -1,1 +1,1 @@
-## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
+## I got an A on my origami assignment when I turned my paper into my teacher
