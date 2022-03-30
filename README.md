@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
