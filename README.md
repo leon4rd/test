@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## I used to work in a shoe recycling shop. It was sole destroying.
