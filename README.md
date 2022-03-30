@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
