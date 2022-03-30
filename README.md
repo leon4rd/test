@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Why was the big cat disqualified from the race? Because it was a cheetah.
