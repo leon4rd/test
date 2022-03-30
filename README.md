@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
