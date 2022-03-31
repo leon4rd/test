@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
