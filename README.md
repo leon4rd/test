@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
