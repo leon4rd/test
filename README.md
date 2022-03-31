@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## Why did the tree go to the dentist? It needed a root canal.
