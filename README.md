@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
