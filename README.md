@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## Why can't eggs have love? They will break up too soon.
