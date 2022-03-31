@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
