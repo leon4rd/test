@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## I just wrote a book on reverse psychology. Do not read it!
