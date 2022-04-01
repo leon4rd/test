@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
