@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
