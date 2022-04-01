@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
