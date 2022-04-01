@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## I used to think I was indecisive, but now I'm not sure.
