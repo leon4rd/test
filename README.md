@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Did you know that ghosts call their true love their ghoul-friend?
