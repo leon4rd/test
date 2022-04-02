@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## I considered building the patio by myself. But I didn't have the stones.
