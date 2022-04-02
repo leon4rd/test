@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
