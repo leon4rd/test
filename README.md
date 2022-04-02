@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## R.I.P. boiled water. You will be mist.
