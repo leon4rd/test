@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
