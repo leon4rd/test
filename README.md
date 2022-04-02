@@ -1,1 +1,1 @@
-## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
