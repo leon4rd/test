@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
