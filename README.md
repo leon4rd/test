@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
