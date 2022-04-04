@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
