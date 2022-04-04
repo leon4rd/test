@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
