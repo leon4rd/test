@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
