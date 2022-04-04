@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
