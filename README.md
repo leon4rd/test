@@ -1,3 +1,3 @@
-## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
+## Never Trust Someone With Graph Paper...
 ## 
-## So, I got a job at a travel agency.  Now, I know I'll be going places.
+## They're always plotting something.
