@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
