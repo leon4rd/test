@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## What is a tornado's favorite game to play? Twister!
