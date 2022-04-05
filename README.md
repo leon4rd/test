@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Dad, can you put my shoes on? I don't think they'll fit me.
