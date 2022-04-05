@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## Where did you learn to make ice cream? Sunday school.
