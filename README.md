@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
