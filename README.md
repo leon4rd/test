@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Do you know where you can get chicken broth in bulk? The stock market.
