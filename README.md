@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
