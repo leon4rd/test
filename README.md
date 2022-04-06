@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
