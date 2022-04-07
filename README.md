@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
