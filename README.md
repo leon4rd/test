@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## How does Darth Vader like his toast? On the dark side.
