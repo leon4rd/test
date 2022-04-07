@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
