@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
