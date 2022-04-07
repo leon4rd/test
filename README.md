@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## When does a joke become a dad joke? When it becomes apparent.
