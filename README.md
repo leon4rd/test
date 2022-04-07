@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
