@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## Writing with a broken pencil is pointless.
