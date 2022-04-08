@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## A magician was driving down the street and then he turned into a driveway.
