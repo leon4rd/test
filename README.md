@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Man, I really love my furniture... me and my recliner go way back.
