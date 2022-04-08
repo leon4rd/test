@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Why do choirs keep buckets handy? So they can carry their tune
