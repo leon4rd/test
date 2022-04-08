@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Did you hear about the runner who was criticized? He just took it in stride
