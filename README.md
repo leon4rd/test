@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## What did one nut say as he chased another nut?  I'm a cashew!
