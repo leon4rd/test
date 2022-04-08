@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
