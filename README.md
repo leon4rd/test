@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
