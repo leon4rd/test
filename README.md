@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
