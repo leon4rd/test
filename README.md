@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
