@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
