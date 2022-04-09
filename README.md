@@ -1,1 +1,1 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
