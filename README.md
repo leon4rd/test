@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
