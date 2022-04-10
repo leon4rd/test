@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Did you know that ghosts call their true love their ghoul-friend?
