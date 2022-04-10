@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
