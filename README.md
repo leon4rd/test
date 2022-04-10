@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## What did one wall say to the other wall? I'll meet you at the corner!
