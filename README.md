@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## I used to hate facial hair, but then it grew on me.
