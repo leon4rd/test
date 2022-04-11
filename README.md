@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
