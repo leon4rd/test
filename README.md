@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
