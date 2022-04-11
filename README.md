@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
