@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Me and my mates are in a band called Duvet. We're a cover band.
