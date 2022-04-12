@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## I considered building the patio by myself. But I didn't have the stones.
