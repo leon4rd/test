@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
