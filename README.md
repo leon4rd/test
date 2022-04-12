@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Why do fish live in salt water? Because pepper makes them sneeze!
