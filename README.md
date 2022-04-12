@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## What did the grape do when he got stepped on? He let out a little wine.
