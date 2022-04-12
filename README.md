@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
