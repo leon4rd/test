@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
