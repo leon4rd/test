@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## If two vegans are having an argument, is it still considered beef?
