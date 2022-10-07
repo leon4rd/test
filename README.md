@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
