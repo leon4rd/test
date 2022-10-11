@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Why is the ocean always blue? Because the shore never waves back.
