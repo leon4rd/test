@@ -1,1 +1,2 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
