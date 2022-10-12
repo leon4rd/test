@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I wouldn't buy anything with velcro. It's a total rip-off.
