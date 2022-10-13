@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
