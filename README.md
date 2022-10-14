@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## I ordered a chicken and an egg from Amazon. I'll let you know.
