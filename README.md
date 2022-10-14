@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
