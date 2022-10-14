@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Why did the half blind man fall in the well? Because he couldn't see that well!
