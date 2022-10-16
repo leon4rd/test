@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What did one nut say as he chased another nut?  I'm a cashew!
