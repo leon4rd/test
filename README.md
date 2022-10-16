@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
