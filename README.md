@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Why was the robot angry? Because someone kept pressing his buttons!
