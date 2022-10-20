@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## What is a tornado's favorite game to play? Twister!
