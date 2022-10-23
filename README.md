@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
