@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
