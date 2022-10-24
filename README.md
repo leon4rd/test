@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
