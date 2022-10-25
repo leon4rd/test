@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
