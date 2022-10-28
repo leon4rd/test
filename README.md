@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## How do hens stay fit? They always egg-cercise!
