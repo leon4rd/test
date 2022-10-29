@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
