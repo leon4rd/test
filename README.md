@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Why are mummys scared of vacation? They're afraid to unwind.
