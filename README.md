@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## I just broke my guitar. It's okay, I won't fret
