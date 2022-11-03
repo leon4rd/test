@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## What kind of magic do cows believe in? MOODOO.
