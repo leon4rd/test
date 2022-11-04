@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
