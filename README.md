@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
