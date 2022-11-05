@@ -1,1 +1,2 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
