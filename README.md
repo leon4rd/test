@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
