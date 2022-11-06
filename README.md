@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Why didn’t the skeleton cross the road? Because he had no guts.
