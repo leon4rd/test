@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## A cannibal is someone who is fed up with people.
