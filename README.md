@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
