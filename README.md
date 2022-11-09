@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
