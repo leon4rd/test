@@ -1,1 +1,2 @@
-## What do you call a boomerang that won't come back? A stick.
+## What is the best way to carve?
+## Whittle by whittle.
