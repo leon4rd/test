@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Some people eat light bulbs. They say it's a nice light snack.
