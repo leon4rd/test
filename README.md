@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Why do pirates not know the alphabet? They always get stuck at "C".
