@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
