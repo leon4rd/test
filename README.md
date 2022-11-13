@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## What creature is smarter than a talking parrot? A spelling bee.
