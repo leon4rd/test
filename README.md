@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## How many apples grow on a tree? All of them!
