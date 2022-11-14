@@ -1,1 +1,3 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
