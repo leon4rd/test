@@ -1,2 +1,1 @@
-## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
-## I have no words to describe how angry I am.
+## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
