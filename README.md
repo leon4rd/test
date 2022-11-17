@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
