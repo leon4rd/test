@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
