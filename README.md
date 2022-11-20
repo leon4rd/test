@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
