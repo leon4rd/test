@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Why do crabs never give to charity? Because they’re shellfish.
