@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## What did the grape do when he got stepped on? He let out a little wine.
