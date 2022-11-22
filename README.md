@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Why did the chicken get a penalty? For fowl play.
