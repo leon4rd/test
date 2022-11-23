@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Did you hear about the two thieves who stole a calendar? They each got six months.
