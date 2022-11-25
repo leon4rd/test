@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
