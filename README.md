@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
