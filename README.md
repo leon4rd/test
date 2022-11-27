@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
