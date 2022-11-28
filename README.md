@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## Why did the cookie cry? It was feeling crumby.
