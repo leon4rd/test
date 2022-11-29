@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
