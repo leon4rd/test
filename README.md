@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
