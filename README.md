@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
