@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
