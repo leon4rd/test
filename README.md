@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
