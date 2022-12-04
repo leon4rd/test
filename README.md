@@ -1,1 +1,2 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
