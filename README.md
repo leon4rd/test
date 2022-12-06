@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## What kind of award did the dentist receive? A little plaque.
