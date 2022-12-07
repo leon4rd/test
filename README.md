@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
