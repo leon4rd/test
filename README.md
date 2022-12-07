@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## I knew a guy who collected candy canes, they were all in mint condition
