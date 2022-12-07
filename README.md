@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
