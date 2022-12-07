@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Why did the tomato blush? Because it saw the salad dressing.
