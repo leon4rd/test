@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
