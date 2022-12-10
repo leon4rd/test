@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## How do hens stay fit? They always egg-cercise!
