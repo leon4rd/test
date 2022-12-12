@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Why do fish live in salt water? Because pepper makes them sneeze!
