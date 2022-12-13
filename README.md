@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
