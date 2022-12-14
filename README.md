@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
