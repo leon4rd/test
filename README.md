@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
