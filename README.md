@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
