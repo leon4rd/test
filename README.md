@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
