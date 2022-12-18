@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Two peanuts were walking down the street. One was a salted.
