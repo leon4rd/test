@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Why do cows wear bells? Because their horns don't work.
