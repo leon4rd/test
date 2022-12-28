@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
