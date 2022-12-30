@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## I got an A on my origami assignment when I turned my paper into my teacher
