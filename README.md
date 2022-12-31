@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## I'll tell you what often gets over looked... garden fences.
