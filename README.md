@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
