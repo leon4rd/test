@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
