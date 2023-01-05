@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
