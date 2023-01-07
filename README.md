@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## I couldn't get a reservation at the library. They were completely booked.
