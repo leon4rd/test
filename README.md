@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
