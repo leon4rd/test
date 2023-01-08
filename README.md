@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
