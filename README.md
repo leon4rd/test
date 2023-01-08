@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
