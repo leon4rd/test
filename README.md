@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## What creature is smarter than a talking parrot? A spelling bee.
