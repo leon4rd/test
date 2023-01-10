@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## What did the 0 say to the 8? Nice belt.
