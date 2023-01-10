@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## I knew a guy who collected candy canes, they were all in mint condition
