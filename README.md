@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I got fired from a florist, apparently I took too many leaves.
