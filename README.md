@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
