@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
