@@ -1,3 +1,1 @@
-## Doctor: Do you want to hear the good news or the bad news?
-## Patient: Good news please.
-## Doctor: we're naming a disease after you.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
