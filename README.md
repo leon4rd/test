@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
