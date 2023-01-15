@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Who did the wizard marry? His ghoul-friend
