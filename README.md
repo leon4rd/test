@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
