@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
