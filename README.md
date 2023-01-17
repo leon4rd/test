@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
