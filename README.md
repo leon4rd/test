@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
