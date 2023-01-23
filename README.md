@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
