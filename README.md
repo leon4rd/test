@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## "I'll call you later." Don't call me later, call me Dad.
