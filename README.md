@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
