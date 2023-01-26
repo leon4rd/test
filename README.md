@@ -1,1 +1,3 @@
-## What do you call your friend who stands in a hole? Phil.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
