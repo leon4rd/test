@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
