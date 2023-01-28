@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## The best time on a clock is 6:30--hands down.
