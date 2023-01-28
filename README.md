@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
