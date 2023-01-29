@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
