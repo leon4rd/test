@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
