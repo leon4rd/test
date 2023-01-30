@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Why do choirs keep buckets handy? So they can carry their tune
