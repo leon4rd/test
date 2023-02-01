@@ -1,1 +1,3 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
