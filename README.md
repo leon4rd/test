@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
