@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
