@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
