@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Where did Captain Hook get his hook? From a second hand store.
