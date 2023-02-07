@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Man, I really love my furniture... me and my recliner go way back.
