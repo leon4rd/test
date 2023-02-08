@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## I was in an 80's band called the prevention. We were better than the cure.
