@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
