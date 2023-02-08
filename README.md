@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
