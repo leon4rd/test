@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Did you hear about the bread factory burning down? They say the business is toast.
