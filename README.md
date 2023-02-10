@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
