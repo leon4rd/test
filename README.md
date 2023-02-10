@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## What creature is smarter than a talking parrot? A spelling bee.
