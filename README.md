@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
