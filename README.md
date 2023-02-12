@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Whoever invented the knock-knock joke should get a no bell prize.
