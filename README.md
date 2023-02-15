@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Why don't sharks eat clowns?  Because they taste funny.
