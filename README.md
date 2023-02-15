@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What did the digital clock say to the grandfather clock? Look, no hands!
