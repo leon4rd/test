@@ -1,1 +1,1 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
