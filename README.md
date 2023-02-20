@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## I used to work for an origami company but they folded.
