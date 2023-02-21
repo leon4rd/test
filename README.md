@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
