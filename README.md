@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
