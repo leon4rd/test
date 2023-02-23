@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
