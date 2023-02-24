@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
