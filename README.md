@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
