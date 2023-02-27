@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Why can't eggs have love? They will break up too soon.
