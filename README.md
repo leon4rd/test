@@ -1,1 +1,1 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
