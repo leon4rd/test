@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
