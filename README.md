@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
