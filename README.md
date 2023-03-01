@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
