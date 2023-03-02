@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
