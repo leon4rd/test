@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## I ate a clock yesterday. It was so time consuming.
