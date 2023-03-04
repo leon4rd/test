@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
