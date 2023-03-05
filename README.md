@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## How can you tell a vampire has a cold? They start coffin.
