@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
