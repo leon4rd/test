@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## Did you know that ghosts call their true love their ghoul-friend?
