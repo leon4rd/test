@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
