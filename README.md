@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
