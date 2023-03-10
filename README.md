@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
