@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
