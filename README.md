@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
