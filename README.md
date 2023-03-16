@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Why didn’t the skeleton cross the road? Because he had no guts.
