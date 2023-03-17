@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Have you ever seen fruit preserves being made? It's jarring.
