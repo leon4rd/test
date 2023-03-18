@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## What did the fish say when it swam into a wall? Damn!
