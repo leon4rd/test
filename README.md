@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## I had a dream that I was a muffler last night. I woke up exhausted!
