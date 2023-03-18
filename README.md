@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## What did the left eye say to the right eye? Between us, something smells!
