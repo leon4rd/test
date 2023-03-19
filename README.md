@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Conjunctivitis.com – now that’s a site for sore eyes.
