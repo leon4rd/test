@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## Why do birds fly south for the winter? Because it's too far to walk.
