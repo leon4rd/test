@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
