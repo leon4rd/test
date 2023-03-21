@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## What animal is always at a game of cricket? A bat.
