@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
