@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
