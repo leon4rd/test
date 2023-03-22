@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## What's blue and not very heavy?  Light blue.
