@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
