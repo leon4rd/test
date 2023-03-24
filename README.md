@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## Why was the robot angry? Because someone kept pressing his buttons!
