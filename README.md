@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
