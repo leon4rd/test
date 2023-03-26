@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
