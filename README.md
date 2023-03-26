@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
