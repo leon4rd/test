@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## How many South Americans does it take to change a lightbulb? A Brazilian
