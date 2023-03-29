@@ -1,1 +1,2 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
