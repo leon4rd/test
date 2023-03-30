@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## Why don't eggs tell jokes? They'd crack each other up
