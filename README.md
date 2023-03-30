@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
