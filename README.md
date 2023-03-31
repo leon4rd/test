@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Why do cows wear bells? Because their horns don't work.
