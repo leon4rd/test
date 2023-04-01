@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Where do owls go to buy their baby clothes? The owlet malls.
