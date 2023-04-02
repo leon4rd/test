@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
