@@ -1,1 +1,2 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
