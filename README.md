@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
