@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Why are ghosts bad liars? Because you can see right through them!
