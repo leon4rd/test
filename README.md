@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
