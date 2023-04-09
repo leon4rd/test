@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
