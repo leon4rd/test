@@ -1,1 +1,2 @@
-## What do you call a bee that lives in America? A USB.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
