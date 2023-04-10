@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
