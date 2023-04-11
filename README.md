@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
