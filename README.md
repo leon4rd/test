@@ -1,1 +1,1 @@
-## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
