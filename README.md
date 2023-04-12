@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
