@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
