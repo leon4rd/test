@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
