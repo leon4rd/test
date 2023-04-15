@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
