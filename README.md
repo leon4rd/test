@@ -1,1 +1,1 @@
-## What do you call a girl between two posts? Annette.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
