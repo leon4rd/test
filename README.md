@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
