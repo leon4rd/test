@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
