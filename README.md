@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
