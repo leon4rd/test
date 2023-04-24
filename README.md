@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## How do you make holy water? You boil the hell out of it.
