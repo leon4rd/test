@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Why do pirates not know the alphabet? They always get stuck at "C".
