@@ -1,1 +1,1 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
