@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
