@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## How does the moon cut his hair? Eclipse it.
