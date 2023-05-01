@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## I ate a clock yesterday. It was so time consuming.
