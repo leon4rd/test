@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
