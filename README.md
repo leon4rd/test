@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## I invented a new word! Plagiarism!
