@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## What's a ninja's favorite type of shoes? Sneakers!
