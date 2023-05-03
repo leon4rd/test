@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
