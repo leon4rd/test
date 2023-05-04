@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Me and my mates are in a band called Duvet. We're a cover band.
