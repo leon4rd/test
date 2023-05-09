@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## I considered building the patio by myself. But I didn't have the stones.
