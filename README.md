@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
