@@ -1,1 +1,2 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
