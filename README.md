@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
