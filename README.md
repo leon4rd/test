@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
