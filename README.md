@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## No matter how kind you are, German children are kinder.
