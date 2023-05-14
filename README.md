@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
