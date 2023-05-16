@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
