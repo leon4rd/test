@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## I thought about going on an all-almond diet. But that's just nuts.
