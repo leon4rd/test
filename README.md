@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
