@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## What did the piece of bread say to the knife? Butter me up.
