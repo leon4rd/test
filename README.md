@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
