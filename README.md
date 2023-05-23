@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
