@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
