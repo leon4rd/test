@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
