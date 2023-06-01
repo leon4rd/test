@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
