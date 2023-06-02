@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
