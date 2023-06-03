@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## What time did the man go to the dentist? Tooth hurt-y.
