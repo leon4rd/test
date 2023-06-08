@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## What do you call a magician who has lost their magic? Ian.
