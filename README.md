@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Why can't a bicycle stand on its own? It's two-tired.
