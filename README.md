@@ -1,1 +1,1 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
