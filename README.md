@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
