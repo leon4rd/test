@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
