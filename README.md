@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## When do doctors get angry? When they run out of patients.
