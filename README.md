@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
