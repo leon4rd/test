@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
