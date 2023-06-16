@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
