@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
