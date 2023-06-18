@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
