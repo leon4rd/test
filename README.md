@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
