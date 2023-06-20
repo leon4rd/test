@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## Why did the coffee file a police report? It got mugged.
