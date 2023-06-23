@@ -1,1 +1,1 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
