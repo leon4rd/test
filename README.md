@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
