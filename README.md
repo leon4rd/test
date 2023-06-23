@@ -1,1 +1,1 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
