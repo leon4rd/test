@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why are graveyards so noisy? Because of all the coffin.
