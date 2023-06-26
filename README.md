@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
