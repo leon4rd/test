@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
