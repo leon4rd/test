@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
