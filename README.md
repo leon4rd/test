@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## What kind of dinosaur loves to sleep? A stega-snore-us.
