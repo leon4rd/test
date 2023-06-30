@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
