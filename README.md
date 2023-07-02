@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
