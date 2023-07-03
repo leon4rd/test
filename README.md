@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
