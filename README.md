@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## I considered building the patio by myself. But I didn't have the stones.
