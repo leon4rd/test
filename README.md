@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
