@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Toasters were the first form of pop-up notifications.
