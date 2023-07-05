@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
