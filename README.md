@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
