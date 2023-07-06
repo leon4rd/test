@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## Where do hamburgers go to dance? The meat-ball.
