@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
