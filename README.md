@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
