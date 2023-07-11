@@ -1,1 +1,1 @@
-## I used to think I was indecisive, but now I'm not sure.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
