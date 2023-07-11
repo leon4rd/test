@@ -1,1 +1,1 @@
-## They're making a movie about clocks. It's about time
+## What do you call corn that joins the army? Kernel.
