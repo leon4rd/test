@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
