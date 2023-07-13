@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## What do you call two guys hanging out by your window? Kurt & Rod.
