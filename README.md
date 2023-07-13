@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
