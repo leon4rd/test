@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## It doesn't matter how much you push the envelope. It will still be stationary.
