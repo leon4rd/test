@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
