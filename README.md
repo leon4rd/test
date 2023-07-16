@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
