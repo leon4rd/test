@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What did the ocean say to the shore? Nothing, it just waved.
