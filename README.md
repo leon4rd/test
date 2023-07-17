@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
