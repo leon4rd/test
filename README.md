@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
