@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Whoever invented the knock-knock joke should get a no bell prize.
