@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
