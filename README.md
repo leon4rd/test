@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## A steak pun is a rare medium well done.
