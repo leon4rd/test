@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
