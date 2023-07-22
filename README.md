@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## What did the ocean say to the shore? Nothing, it just waved.
