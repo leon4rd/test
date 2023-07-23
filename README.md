@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Is the pool safe for diving? It deep ends.
