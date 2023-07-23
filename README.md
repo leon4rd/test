@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
