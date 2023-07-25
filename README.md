@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Why didn’t the orange win the race? It ran out of juice.
