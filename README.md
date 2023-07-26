@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
