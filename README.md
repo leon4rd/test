@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
