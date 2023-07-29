@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Ever wondered why bees hum? It's because they don't know the words.
