@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Ever wondered why bees hum? It's because they don't know the words.
