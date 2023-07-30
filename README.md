@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## What did the piece of bread say to the knife? Butter me up.
