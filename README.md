@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
