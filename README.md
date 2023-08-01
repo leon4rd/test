@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## Want to hear a joke about construction? Nah, I'm still working on it.
