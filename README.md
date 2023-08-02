@@ -1,1 +1,1 @@
-## What do you call cheese by itself? Provolone.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
