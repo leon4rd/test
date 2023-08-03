@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
