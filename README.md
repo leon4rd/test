@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
