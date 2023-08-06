@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## What did the digital clock say to the grandfather clock? Look, no hands!
