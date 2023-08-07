@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What did the dog say to the two trees? Bark bark.
