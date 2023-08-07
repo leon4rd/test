@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Where did Captain Hook get his hook? From a second hand store.
