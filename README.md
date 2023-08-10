@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
