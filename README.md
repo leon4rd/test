@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
