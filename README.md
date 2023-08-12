@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## What do you get when you cross a pig and a pineapple? A porky pine
