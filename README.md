@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
