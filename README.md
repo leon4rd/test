@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## My first time using an elevator was an uplifting experience. The second time let me down.
