@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
