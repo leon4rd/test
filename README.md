@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## Writing with a broken pencil is pointless.
