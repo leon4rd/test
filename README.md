@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## I was going to get a brain transplant, but I changed my mind
