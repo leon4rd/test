@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
