@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
