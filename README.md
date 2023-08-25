@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
