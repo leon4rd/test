@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
