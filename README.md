@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What do you call your friend who stands in a hole? Phil.
