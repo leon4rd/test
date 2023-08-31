@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## What do you call a fat psychic? A four-chin teller.
