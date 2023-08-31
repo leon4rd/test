@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Why is the ocean always blue? Because the shore never waves back.
