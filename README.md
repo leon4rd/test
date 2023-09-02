@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## What does a clock do when it's hungry? It goes back four seconds!
