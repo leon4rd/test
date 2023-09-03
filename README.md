@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What did the piece of bread say to the knife? Butter me up.
