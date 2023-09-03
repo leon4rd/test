@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## Why did the kid cross the playground? To get to the other slide.
