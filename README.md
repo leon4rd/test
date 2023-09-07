@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## There’s a new type of broom out, it’s sweeping the nation.
