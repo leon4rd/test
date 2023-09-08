@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## What did Yoda say when he saw himself in 4K? "HDMI"
