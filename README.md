@@ -1,1 +1,1 @@
-## Scientists finally did a study on forks. It's about tine!
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
