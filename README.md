@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## What did one snowman say to the other snow man? Do you smell carrot?
