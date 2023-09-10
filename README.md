@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## Why do mathematicians hate the U.S.? Because it's indivisible.
