@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
