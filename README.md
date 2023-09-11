@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## Why did the man put his money in the freezer? He wanted cold hard cash!
