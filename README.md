@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
