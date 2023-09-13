@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
