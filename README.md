@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
