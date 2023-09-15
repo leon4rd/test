@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## What was a more important invention than the first telephone? The second one.
