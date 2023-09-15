@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
