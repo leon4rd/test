@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
