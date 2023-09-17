@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## When is a door not a door? When it's ajar.
