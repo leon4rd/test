@@ -1,1 +1,2 @@
-## I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
