@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
