@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## A termite walks into a bar and asks “Is the bar tender here?”
