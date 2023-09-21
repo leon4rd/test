@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## I’m on a whiskey diet. I’ve lost three days already.
