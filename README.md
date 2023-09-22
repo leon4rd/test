@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
