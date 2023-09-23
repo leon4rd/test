@@ -1,1 +1,2 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
