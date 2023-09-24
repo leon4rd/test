@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
