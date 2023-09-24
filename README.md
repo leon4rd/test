@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## What did the sea say to the sand? "We have to stop meeting like this."
