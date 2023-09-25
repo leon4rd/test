@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
