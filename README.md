@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
