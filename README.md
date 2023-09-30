@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
