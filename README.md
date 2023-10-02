@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## How do you get two whales in a car? Start in England and drive West.
