@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
