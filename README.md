@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
