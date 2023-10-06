@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Why did the barber win the race? He took a short cut.
