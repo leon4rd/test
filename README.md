@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## When is a door not a door? When it's ajar.
