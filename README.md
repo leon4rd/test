@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## People are making apocalypse jokes like there’s no tomorrow.
