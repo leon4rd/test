@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Why don't sharks eat clowns?  Because they taste funny.
