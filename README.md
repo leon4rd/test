@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
