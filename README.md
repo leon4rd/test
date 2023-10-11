@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Why are skeletons so calm? Because nothing gets under their skin.
