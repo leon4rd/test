@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
