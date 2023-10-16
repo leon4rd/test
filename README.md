@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
