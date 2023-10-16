@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
