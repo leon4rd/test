@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Did you hear about the submarine industry? It really took a dive...
