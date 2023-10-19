@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
