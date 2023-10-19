@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
