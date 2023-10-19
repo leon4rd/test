@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## What kind of magic do cows believe in? MOODOO.
