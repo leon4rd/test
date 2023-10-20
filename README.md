@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## Don't tell secrets in corn fields. Too many ears around.
