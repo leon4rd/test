@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
