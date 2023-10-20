@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Shout out to my grandma, that's the only way she can hear.
