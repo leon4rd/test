@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Why is the ocean always blue? Because the shore never waves back.
