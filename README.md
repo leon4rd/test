@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
