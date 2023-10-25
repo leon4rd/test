@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
