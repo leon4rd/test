@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
