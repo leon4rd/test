@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
