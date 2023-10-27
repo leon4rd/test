@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
