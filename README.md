@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## I’ll tell you something about German sausages, they’re the wurst
