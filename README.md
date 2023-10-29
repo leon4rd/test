@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
