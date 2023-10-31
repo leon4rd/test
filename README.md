@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
