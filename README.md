@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
