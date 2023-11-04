@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
