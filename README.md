@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## Mountains aren't just funny, they are hill areas
