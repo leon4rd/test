@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Why did the knife dress up in a suit? Because it wanted to look sharp
