@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## If at first you don't succeed, sky diving is not for you!
