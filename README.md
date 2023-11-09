@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
