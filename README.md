@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
