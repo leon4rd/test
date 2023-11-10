@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
