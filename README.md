@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## I couldn't get a reservation at the library. They were completely booked.
