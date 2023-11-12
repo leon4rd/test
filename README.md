@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why was the robot angry? Because someone kept pressing his buttons!
