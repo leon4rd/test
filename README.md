@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
