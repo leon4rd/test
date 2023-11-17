@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## What was a more important invention than the first telephone? The second one.
