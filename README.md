@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
