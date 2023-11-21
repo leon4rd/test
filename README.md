@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
