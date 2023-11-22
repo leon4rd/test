@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
