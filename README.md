@@ -1,1 +1,2 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## What's large, grey, and doesn't matter?
+## An irrelephant.
