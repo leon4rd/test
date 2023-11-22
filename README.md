@@ -1,1 +1,1 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
