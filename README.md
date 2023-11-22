@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
