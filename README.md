@@ -1,1 +1,2 @@
-## Pie is $2.50 in Jamaica and $3.00 in The Bahamas. These are the pie-rates of the Caribbean.
+## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
+## I have no words to describe how angry I am.
