@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
