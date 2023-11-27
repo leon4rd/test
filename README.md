@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## How come the stadium got hot after the game? Because all of the fans left.
