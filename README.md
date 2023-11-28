@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
