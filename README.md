@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Whoever invented the knock-knock joke should get a no bell prize.
