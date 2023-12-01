@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
