@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
