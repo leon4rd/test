@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## There's not really any training for garbagemen. They just pick things up as they go.
