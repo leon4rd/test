@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
