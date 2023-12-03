@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
