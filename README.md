@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
