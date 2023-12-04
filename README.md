@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
