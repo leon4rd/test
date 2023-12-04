@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## I used to work in a shoe recycling shop. It was sole destroying.
