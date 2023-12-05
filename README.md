@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
