@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
