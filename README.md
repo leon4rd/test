@@ -1,1 +1,1 @@
-## Camping is intense.
+## The rotation of earth really makes my day.
