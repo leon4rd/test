@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
