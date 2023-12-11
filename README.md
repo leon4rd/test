@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
