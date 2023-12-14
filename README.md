@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
