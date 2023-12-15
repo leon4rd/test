@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
