@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
