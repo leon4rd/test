@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## It doesn't matter how much you push the envelope. It will still be stationary.
