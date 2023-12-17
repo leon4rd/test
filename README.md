@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
