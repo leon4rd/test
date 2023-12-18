@@ -1,1 +1,1 @@
-## Two muffins were sitting in an oven, and the first looks over to the second, and says, “man, it’s really hot in here”. The second looks over at the first with a surprised look, and answers, “WHOA, a talking muffin!”
+## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
