@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## "I'll call you later." Don't call me later, call me Dad.
