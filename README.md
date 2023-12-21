@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
