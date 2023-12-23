@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
