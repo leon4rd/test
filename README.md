@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
