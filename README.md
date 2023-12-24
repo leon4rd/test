@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
