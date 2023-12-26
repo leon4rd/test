@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
