@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## What do you do when your bunny gets wet? You get your hare dryer.
