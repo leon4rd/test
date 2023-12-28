@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## The urge to sing the Lion King song is just a whim away.
