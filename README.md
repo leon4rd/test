@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## When does a joke become a dad joke? When it becomes apparent.
