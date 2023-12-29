@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## What did the calculator say to the student? You can count on me.
