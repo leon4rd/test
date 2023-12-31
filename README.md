@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
