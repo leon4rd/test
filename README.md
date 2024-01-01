@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
