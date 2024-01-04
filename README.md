@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## What do you call an alligator in a vest? An in-vest-igator!
