@@ -1,1 +1,1 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## What does an angry pepper do? It gets jalapeño face.
