@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## I decided to sell my Hoover… well it was just collecting dust.
