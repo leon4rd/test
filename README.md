@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Breaking news! Energizer Bunny arrested – charged with battery.
