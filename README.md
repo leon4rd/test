@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## When is a door not a door? When it's ajar.
