@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
