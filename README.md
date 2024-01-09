@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## Where do sheep go to get their hair cut? The baa-baa shop.
