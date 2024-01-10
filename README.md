@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Why was the strawberry sad? Its parents were in a jam.
