@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## How do robots eat guacamole? With computer chips.
