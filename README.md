@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
