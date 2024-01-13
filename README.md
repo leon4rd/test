@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
