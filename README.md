@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## What do you call a duck that gets all A's? A wise quacker.
