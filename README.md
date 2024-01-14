@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## How does Darth Vader like his toast? On the dark side.
