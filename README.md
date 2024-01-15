@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## Why did the coffee file a police report? It got mugged.
