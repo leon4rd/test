@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## What do you call a group of killer whales playing instruments? An Orca-stra.
