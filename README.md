@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
