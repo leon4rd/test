@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
