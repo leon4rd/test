@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
