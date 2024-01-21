@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## What did the digital clock say to the grandfather clock? Look, no hands!
