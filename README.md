@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Why do we tell actors to “break a leg?” Because every play has a cast.
