@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
