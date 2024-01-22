@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Where did Captain Hook get his hook? From a second hand store.
