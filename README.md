@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## Where do hamburgers go to dance? The meat-ball.
