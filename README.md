@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What do you call a boomerang that won't come back? A stick.
