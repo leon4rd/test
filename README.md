@@ -1,1 +1,3 @@
-## What do you call a boomerang that won't come back? A stick.
+## Doctor: Do you want to hear the good news or the bad news?
+## Patient: Good news please.
+## Doctor: we're naming a disease after you.
