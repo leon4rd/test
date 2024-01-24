@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
