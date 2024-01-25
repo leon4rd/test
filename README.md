@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## How are false teeth like stars? They come out at night!
