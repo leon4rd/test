@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
