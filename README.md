@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
