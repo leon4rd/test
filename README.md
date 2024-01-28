@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
