@@ -1,1 +1,2 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
