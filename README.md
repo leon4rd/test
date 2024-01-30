@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
