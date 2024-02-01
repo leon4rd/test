@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## I used to be addicted to soap, but I'm clean now.
