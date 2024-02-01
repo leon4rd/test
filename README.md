@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
