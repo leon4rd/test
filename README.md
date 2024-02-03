@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## A Skeleton walked into a bar he said I need a beer and a mop
