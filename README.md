@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
