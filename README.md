@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I used to be a banker, but I lost interest.
