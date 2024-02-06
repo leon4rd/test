@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## How many South Americans does it take to change a lightbulb? A Brazilian
