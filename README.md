@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
