@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
