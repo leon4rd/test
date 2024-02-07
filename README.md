@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
