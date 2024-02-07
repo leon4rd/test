@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
