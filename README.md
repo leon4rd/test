@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## What do you call a beehive without the b's? An eehive.
