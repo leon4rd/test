@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## My wife said I was immature. So I told her to get out of my fort.
