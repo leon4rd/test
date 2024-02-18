@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
