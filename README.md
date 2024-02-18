@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## "I'm sorry." "Hi sorry, I'm dad"
