@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## When does a joke become a dad joke? When it becomes apparent.
