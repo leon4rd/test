@@ -1,1 +1,2 @@
-## Just read a few facts about frogs. They were ribbiting.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
