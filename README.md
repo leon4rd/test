@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Do you know where you can get chicken broth in bulk? The stock market.
