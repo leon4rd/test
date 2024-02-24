@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Don't tell secrets in corn fields. Too many ears around.
