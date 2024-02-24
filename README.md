@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
