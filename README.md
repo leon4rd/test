@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## I don't trust sushi, there's something fishy about it.
