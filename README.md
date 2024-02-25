@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## what do you call a dog that can do magic tricks? a labracadabrador
