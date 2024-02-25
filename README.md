@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## What do you call a boomerang that won't come back? A stick.
