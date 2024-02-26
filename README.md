@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
