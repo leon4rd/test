@@ -1,1 +1,1 @@
-## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
