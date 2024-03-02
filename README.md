@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## How come the stadium got hot after the game? Because all of the fans left.
