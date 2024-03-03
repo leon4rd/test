@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Dad, can you put my shoes on? I don't think they'll fit me.
