@@ -1,1 +1,2 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
