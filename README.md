@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Why do birds fly south for the winter? Because it's too far to walk.
