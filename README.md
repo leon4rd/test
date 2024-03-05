@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
