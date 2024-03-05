@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
