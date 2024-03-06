@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## The best time on a clock is 6:30--hands down.
