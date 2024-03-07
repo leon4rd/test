@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## What did the beaver say to the tree? It's been nice gnawing you.
