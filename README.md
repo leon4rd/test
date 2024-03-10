@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Shout out to my grandma, that's the only way she can hear.
