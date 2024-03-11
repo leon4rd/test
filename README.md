@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
