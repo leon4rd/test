@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## What does a pirate pay for his corn? A buccaneer!
