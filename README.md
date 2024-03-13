@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## There's not really any training for garbagemen. They just pick things up as they go.
