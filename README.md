@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
