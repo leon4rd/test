@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## What do you call a fake noodle? An impasta.
