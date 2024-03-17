@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
