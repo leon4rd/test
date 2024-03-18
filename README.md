@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
