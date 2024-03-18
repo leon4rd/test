@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Why do fish live in salt water? Because pepper makes them sneeze!
