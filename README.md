@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Why does Han Solo like gum? It's chewy!
