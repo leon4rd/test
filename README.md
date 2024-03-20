@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
