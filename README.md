@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
