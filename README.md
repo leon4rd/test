@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
