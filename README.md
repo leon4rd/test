@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## What did one wall say to the other wall? I'll meet you at the corner!
