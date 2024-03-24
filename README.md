@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
