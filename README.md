@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Why was ten scared of seven? Because seven ate nine.
