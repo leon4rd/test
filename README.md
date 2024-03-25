@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
