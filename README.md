@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## Have you heard about corduroy pillows?  They're making headlines!
