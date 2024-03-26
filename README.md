@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## I boiled a funny bone last night and had a laughing stock
