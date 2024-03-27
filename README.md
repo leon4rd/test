@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## What do computers and air conditioners have in common? They both become useless when you open windows.
