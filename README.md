@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Atheism is a non-prophet organisation.
