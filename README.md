@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## What did the sea say to the sand? "We have to stop meeting like this."
