@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
