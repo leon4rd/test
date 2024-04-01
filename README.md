@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Two peanuts were walking down the street. One was a salted
