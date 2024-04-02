@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
