@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Never take advice from electrons. They are always negative.
