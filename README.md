@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Why was the strawberry sad? Its parents were in a jam.
