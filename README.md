@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## A steak pun is a rare medium well done.
