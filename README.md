@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
