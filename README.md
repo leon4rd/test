@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
