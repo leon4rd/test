@@ -1,1 +1,2 @@
-## What do you call someone with no nose? Nobody knows.
+## What is red and smells like blue paint?
+## Red paint!
