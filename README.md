@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
