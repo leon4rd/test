@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## The urge to sing the Lion King song is just a whim away.
