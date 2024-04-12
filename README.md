@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Why did the chicken get a penalty? For fowl play.
