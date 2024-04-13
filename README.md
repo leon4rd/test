@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
