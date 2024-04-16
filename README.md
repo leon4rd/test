@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## A Skeleton walked into a bar he said I need a beer and a mop
