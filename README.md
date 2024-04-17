@@ -1,1 +1,1 @@
-## Milk is also the fastest liquid on earth – its pasteurized before you even see it
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
