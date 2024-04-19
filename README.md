@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## I boiled a funny bone last night and had a laughing stock
