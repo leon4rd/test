@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## You know that cemetery up the road? People are dying to get in there.
