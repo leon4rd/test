@@ -1,1 +1,2 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## Where do cats write notes?
+## Scratch Paper!
