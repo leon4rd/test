@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Animal Fact #25: Most bobcats are not named bob.
