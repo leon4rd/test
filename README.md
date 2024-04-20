@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## We all know where the Big Apple is but does anyone know where the Minneapolis?
