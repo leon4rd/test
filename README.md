@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
