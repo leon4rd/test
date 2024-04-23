@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## What did the sea say to the sand? "We have to stop meeting like this."
