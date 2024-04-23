@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
