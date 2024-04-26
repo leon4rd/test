@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## What is a vampire's favorite fruit? A blood orange.
