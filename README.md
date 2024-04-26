@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
