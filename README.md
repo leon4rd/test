@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Leather is great for sneaking around because it's made of hide.
