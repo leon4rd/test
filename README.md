@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
