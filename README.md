@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## A farmer had 297 cows, when he rounded them up, he found he had 300
