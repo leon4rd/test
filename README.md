@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
