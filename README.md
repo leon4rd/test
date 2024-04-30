@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Why was the robot angry? Because someone kept pressing his buttons!
