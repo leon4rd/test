@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
