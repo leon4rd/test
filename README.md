@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
