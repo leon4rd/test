@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
