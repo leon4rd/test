@@ -1,1 +1,1 @@
-## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
