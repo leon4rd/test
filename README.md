@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
