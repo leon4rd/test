@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Why didn’t the skeleton cross the road? Because he had no guts.
