@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## What kind of award did the dentist receive? A little plaque.
