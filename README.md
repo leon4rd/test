@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
