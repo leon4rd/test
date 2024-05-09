@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
