@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## What animal is always at a game of cricket? A bat.
