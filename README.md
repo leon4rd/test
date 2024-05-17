@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
