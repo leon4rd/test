@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## How does a French skeleton say hello? Bone-jour.
