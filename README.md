@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Two peanuts were walking down the street. One was a salted.
