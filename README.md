@@ -1,1 +1,2 @@
-## What do you give a sick lemon? Lemonaid.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
