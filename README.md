@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
