@@ -1,1 +1,2 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## What is the best way to carve?
+## Whittle by whittle.
