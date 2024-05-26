@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
