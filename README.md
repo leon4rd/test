@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
