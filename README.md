@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## Two guys walked into a bar, the third one ducked.
