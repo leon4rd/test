@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## How do you teach a kid to climb stairs? There is a step by step guide.
