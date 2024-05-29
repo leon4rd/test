@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## Remember, the best angle to approach a problem from is the "try" angle.
