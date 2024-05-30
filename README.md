@@ -1,1 +1,1 @@
-## What do you call a group of disorganized cats? A cat-tastrophe.
+## How does a French skeleton say hello? Bone-jour.
