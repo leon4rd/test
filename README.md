@@ -1,1 +1,2 @@
-## How does a dyslexic poet write? Inverse.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
