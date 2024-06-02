@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## What kind of award did the dentist receive? A little plaque.
