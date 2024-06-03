@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
