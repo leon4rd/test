@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
