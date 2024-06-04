@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## Don't trust atoms. They make up everything.
