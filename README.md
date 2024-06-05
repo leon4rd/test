@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## I got fired from a florist, apparently I took too many leaves.
