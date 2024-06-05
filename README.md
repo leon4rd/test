@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
