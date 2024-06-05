@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
