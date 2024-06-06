@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
