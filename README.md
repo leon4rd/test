@@ -1,1 +1,1 @@
-## Whiteboards ... are remarkable.
+## What has ears but cannot hear? A field of corn.
