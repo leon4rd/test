@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## "I'm sorry." "Hi sorry, I'm dad"
