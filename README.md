@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## I gave all my dead batteries away today, free of charge.
