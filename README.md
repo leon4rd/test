@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
