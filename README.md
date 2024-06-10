@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
