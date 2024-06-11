@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
