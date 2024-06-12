@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Why did the tree go to the dentist? It needed a root canal.
