@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## I'd like to start a diet, but I've got too much on my plate right now.
