@@ -1,2 +1,3 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
