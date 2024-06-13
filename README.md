@@ -1,1 +1,2 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
