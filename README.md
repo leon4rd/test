@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
