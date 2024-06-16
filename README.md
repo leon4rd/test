@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
