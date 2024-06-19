@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
