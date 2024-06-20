@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
