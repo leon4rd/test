@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## I asked a frenchman if he played video games. He said "Wii"
