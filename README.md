@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## What do you do when your bunny gets wet? You get your hare dryer.
