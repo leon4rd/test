@@ -1,1 +1,3 @@
-## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
