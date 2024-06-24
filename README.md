@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
