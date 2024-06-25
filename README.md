@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
