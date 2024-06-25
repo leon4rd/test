@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
