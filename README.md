@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## What does an angry pepper do? It gets jalapeño face.
