@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Atheism is a non-prophet organisation.
