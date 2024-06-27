@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
