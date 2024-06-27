@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Where do fish keep their money? In the riverbank
