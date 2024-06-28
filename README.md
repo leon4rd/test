@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
