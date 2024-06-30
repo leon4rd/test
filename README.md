@@ -1,1 +1,1 @@
-## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
