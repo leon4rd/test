@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
