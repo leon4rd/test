@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Conjunctivitis.com – now that’s a site for sore eyes.
