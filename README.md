@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
