@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Velcro… What a rip-off.
