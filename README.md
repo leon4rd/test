@@ -1,1 +1,1 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
