@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## The great thing about stationery shops is they're always in the same place...
