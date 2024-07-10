@@ -1,1 +1,2 @@
-## Velcro… What a rip-off.
+## What is red and smells like blue paint?
+## Red paint!
