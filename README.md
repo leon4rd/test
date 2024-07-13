@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## What's blue and not very heavy?  Light blue.
