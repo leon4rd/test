@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## How do the trees get on the internet? They log on.
