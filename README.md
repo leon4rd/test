@@ -1,1 +1,2 @@
-## How do the trees get on the internet? They log on.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
