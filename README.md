@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
