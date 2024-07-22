@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
