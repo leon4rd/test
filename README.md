@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## What's red and bad for your teeth? A Brick.
