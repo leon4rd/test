@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## A magician was driving down the street and then he turned into a driveway.
