@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
