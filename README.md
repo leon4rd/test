@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
