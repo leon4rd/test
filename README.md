@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
