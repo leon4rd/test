@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## How come the stadium got hot after the game? Because all of the fans left.
