@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## Two guys walked into a bar, the third one ducked.
