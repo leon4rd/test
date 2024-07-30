@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## What's a ninja's favorite type of shoes? Sneakers!
