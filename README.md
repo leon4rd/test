@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
