@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
