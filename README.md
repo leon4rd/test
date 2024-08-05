@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
