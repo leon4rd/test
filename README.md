@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## You can't trust a ladder. It will always let you down
