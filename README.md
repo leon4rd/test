@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
