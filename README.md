@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
