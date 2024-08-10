@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## People are making apocalypse jokes like there’s no tomorrow.
