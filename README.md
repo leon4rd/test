@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## What kind of award did the dentist receive? A little plaque.
