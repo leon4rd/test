@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## I just broke my guitar. It's okay, I won't fret
