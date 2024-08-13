@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
