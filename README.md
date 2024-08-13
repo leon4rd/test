@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Why do ducks make great detectives? They always quack the case.
