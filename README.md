@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## Why can't a bicycle stand on its own? It's two-tired.
