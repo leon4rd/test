@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## What kind of pants do ghosts wear? Boo jeans.
