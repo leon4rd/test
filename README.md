@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## What has ears but cannot hear? A field of corn.
