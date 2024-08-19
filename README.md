@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What does a female snake use for support? A co-Bra!
