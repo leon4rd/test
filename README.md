@@ -1,1 +1,1 @@
-## Camping is intense.
+## What did Yoda say when he saw himself in 4K? "HDMI"
