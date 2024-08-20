@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Why did the feline fail the lie detector test? Because he be lion.
