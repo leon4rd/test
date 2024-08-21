@@ -1,1 +1,1 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
