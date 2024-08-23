@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
