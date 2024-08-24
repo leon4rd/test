@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## When do doctors get angry? When they run out of patients.
