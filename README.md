@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## I boiled a funny bone last night and had a laughing stock
