@@ -1,1 +1,1 @@
-## Whiteboards ... are remarkable.
+## A cannibal is someone who is fed up with people.
