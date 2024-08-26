@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
