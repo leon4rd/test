@@ -1,1 +1,1 @@
-## I used to think I was indecisive, but now I'm not sure.
+## What do you call a duck that gets all A's? A wise quacker.
