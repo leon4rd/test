@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Which side of the chicken has more feathers? The outside.
