@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
