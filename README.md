@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
