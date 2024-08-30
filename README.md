@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
