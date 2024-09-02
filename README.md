@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## How come a man driving a train got struck by lightning? He was a good conductor.
