@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## I was in an 80's band called the prevention. We were better than the cure.
