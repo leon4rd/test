@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
