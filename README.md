@@ -1,1 +1,1 @@
-## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
+## Why did the half blind man fall in the well? Because he couldn't see that well!
