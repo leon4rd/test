@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
