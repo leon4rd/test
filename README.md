@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
