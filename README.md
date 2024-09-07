@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
