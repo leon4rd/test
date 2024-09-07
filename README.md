@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
