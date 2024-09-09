@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What do you do when your bunny gets wet? You get your hare dryer.
