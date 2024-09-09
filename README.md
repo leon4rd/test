@@ -1,1 +1,1 @@
-## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
