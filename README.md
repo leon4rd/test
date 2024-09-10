@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Have you heard about corduroy pillows?  They're making headlines!
