@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
