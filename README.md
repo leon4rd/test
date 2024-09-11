@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Why do birds fly south for the winter? Because it's too far to walk.
