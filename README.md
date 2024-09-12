@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
