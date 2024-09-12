@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
