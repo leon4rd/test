@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
