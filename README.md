@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
