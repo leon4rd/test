@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## What do I look like? A JOKE MACHINE!?
