@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Why do bees have sticky hair? Because they use honey combs!
