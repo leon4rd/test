@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Our wedding was so beautiful, even the cake was in tiers.
