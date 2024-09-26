@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
