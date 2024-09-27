@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
