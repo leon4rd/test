@@ -1,1 +1,3 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
