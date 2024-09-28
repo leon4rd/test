@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
