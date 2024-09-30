@@ -1,1 +1,3 @@
-## How does a dyslexic poet write? Inverse.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
