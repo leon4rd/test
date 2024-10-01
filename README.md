@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## What was a more important invention than the first telephone? The second one.
