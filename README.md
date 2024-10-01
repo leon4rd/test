@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Which side of the chicken has more feathers? The outside.
