@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
