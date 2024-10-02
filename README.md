@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
