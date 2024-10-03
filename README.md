@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## Where do young cows eat lunch? In the calf-ateria.
