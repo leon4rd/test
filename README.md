@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
