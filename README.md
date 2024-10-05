@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## It doesn't matter how much you push the envelope. It will still be stationary.
