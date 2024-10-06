@@ -1,1 +1,3 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
