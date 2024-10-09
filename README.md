@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## What do you call a beehive without the b's? An eehive.
