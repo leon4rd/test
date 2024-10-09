@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
