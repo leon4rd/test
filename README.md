@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
