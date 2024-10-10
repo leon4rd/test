@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
