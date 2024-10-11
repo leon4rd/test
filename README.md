@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## Why did the clown have neck pain? - Because he slept funny
