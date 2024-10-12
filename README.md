@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
