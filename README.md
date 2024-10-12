@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
