@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Two guys walked into a bar, the third one ducked.
