@@ -1,1 +1,2 @@
-## Two guys walked into a bar, the third one ducked.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
