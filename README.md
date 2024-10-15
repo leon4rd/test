@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
