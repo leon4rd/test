@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
