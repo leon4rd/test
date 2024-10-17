@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## What does a female snake use for support? A co-Bra!
