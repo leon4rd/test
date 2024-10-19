@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
