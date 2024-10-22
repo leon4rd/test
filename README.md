@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
