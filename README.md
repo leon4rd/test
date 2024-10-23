@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## How do you find Will Smith in the snow?  Look for fresh prints.
