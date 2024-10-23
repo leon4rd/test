@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Conjunctivitis.com – now that’s a site for sore eyes.
