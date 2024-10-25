@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
