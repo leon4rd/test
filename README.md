@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
