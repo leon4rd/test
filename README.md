@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
