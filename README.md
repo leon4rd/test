@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
