@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
