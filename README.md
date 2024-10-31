@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Sore throats are a pain in the neck!
