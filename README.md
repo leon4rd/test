@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## What did the digital clock say to the grandfather clock? Look, no hands!
