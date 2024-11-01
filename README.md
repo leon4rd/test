@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## The urge to sing the Lion King song is just a whim away.
