@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## “My Dog has no nose.” “How does he smell?” “Awful”
