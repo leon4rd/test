@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
