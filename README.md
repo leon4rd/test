@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
