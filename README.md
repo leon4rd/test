@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## An apple a day keeps the bullies away. If you throw it hard enough.
