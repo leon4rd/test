@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## Where does batman go to the bathroom? The batroom.
