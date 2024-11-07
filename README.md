@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Where does astronauts hangout after work? At the spacebar.
