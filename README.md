@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## A termite walks into a bar and asks “Is the bar tender here?”
