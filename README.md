@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why did the feline fail the lie detector test? Because he be lion.
