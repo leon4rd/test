@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
