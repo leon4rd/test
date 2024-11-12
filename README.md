@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Me and my mates are in a band called Duvet. We're a cover band.
