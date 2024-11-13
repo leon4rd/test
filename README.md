@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## What do you call a monkey in a mine field? A babooooom!
