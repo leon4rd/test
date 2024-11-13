@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
