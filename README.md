@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
