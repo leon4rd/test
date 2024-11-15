@@ -1,1 +1,1 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## Writing with a broken pencil is pointless.
