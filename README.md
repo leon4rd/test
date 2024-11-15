@@ -1,1 +1,3 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
