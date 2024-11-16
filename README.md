@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## What kind of award did the dentist receive? A little plaque.
