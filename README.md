@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## It doesn't matter how much you push the envelope. It will still be stationary.
