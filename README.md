@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## Where does Napoleon keep his armies? In his sleevies.
