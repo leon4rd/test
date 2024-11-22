@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
