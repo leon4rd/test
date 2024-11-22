@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
