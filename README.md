@@ -1,1 +1,3 @@
-## Why can't eggs have love? They will break up too soon.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
