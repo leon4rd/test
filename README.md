@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
