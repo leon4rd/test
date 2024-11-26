@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
