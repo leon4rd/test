@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
