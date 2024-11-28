@@ -1,1 +1,1 @@
-## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
