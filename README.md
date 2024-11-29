@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## Why do cows wear bells? Because their horns don't work.
