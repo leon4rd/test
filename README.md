@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
