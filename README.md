@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Have you heard of the band 1023MB? They haven't got a gig yet.
