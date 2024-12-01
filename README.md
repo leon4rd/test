@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## What did the sea say to the sand? "We have to stop meeting like this."
