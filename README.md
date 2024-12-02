@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Atheism is a non-prophet organisation.
