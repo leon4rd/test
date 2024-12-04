@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Me and my mates are in a band called Duvet. We're a cover band.
