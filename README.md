@@ -1,1 +1,2 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
