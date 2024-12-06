@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Why do bees have sticky hair? Because they use honey combs!
