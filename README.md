@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
