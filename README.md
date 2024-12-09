@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
