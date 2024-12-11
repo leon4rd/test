@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Why do birds fly south for the winter? Because it's too far to walk.
