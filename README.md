@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Why don't sharks eat clowns?  Because they taste funny.
