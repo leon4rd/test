@@ -1,1 +1,2 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## What do you do when you see a space man?
+## Park your car, man.
