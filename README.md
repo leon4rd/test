@@ -1,1 +1,1 @@
-## Camping is intense.
+## Have you ever seen fruit preserves being made? It's jarring.
