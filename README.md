@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## Me and my mates are in a band called Duvet. We're a cover band.
