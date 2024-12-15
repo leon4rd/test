@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## Why do bees have sticky hair? Because they use honey combs!
