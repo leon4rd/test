@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
