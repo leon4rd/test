@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## A book just fell on my head. I only have my shelf to blame.
