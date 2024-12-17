@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
