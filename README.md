@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## There's not really any training for garbagemen. They just pick things up as they go.
