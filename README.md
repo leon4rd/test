@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
