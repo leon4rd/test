@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
