@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## What did one plate say to the other plate? Dinner is on me!
