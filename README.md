@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## I broke my finger at work today, on the other hand I'm completely fine.
