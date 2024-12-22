@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
