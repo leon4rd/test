@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
