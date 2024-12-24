@@ -1,1 +1,1 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## This morning I was wondering where the sun was, but then it dawned on me.
