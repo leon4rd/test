@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
