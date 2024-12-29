@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Why do choirs keep buckets handy? So they can carry their tune
