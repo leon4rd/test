@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
