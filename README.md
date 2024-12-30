@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
