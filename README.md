@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
