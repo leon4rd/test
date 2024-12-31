@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
