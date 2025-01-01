@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## What do you call a duck that gets all A's? A wise quacker.
