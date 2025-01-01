@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## New atoms frequently lose electrons when they fail to keep an ion them.
