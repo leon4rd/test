@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
