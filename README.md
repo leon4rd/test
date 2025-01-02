@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## How come the stadium got hot after the game? Because all of the fans left.
