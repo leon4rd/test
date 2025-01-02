@@ -1,1 +1,3 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
