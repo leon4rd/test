@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
