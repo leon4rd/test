@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## My dentist is the best, he even has a little plaque!
