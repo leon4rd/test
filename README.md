@@ -1,1 +1,2 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## What is red and smells like blue paint?
+## Red paint!
