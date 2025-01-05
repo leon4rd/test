@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
