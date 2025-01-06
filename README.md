@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
