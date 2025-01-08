@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## How are false teeth like stars? They come out at night!
