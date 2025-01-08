@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## My boss told me to have a good day... so I went home.
