@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
