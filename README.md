@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## My boss told me to have a good day... so I went home.
