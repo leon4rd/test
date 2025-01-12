@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## Why was the strawberry sad? Its parents were in a jam.
