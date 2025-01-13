@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Why did the banana go to the doctor? He was not "peeling" well.
