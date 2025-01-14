@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## What did the digital clock say to the grandfather clock? Look, no hands!
