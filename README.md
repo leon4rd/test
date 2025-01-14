@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## I decided to sell my Hoover… well it was just collecting dust.
