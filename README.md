@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## This furniture store keeps emailing me, all I wanted was one night stand!
