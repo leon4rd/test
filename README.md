@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## How do you teach a kid to climb stairs? There is a step by step guide.
