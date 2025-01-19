@@ -1,1 +1,3 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
