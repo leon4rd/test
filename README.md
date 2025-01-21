@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
