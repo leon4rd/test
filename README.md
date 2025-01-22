@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
