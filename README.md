@@ -1,1 +1,1 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
