@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
