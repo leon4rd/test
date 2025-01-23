@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
