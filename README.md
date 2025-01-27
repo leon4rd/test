@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## What do you do when your bunny gets wet? You get your hare dryer.
