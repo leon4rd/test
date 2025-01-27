@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
