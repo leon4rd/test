@@ -1,1 +1,3 @@
-## When do doctors get angry? When they run out of patients.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
