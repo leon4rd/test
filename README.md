@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Why do birds fly south for the winter? Because it's too far to walk.
