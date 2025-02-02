@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
