@@ -1,1 +1,1 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
