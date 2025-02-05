@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Whoever invented the knock-knock joke should get a no bell prize.
