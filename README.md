@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
