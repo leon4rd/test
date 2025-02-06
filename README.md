@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Why are fish easy to weigh? Because they have their own scales.
