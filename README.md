@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
