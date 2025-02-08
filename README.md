@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## A cannibal is someone who is fed up with people.
