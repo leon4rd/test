@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
