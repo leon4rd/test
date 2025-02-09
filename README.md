@@ -1,1 +1,1 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
