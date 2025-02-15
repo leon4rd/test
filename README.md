@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
