@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
