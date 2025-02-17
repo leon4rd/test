@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
