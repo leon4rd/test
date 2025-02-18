@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
