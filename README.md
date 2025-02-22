@@ -1,1 +1,2 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## Why did the cookie cry?
+## Because his mother was a wafer so long
