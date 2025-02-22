@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
