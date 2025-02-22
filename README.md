@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## My wife said I was immature. So I told her to get out of my fort.
