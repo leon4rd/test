@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## "I'll call you later." Don't call me later, call me Dad.
