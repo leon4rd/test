@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## What time did the man go to the dentist? Tooth hurt-y.
