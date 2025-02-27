@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## What was a more important invention than the first telephone? The second one.
