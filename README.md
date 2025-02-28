@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## How do you organize a space party? You planet.
