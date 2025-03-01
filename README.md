@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
