@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
