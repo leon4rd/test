@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## I used to work for a soft drink can crusher. It was soda pressing.
