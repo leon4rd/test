@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## What do you call a monkey in a mine field? A babooooom!
