@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
