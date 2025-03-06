@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
