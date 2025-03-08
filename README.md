@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
