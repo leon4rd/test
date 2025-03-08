@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## A Skeleton walked into a bar he said I need a beer and a mop
