@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## Where do young cows eat lunch? In the calf-ateria.
