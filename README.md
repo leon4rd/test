@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## Camping is intense.
