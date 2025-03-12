@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
