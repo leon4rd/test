@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## There's not really any training for garbagemen. They just pick things up as they go.
