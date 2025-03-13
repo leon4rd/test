@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
