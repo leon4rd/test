@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## A magician was driving down the street and then he turned into a driveway.
