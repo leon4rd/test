@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
