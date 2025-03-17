@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## I considered building the patio by myself. But I didn't have the stones.
