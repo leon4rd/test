@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
