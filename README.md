@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
