@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
