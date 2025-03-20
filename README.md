@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
