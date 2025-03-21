@@ -1,1 +1,1 @@
-## Did you know that protons have mass? I didn't even know they were catholic.
+## New atoms frequently lose electrons when they fail to keep an ion them.
