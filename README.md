@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Why do fish live in salt water? Because pepper makes them sneeze!
