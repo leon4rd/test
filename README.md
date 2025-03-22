@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
