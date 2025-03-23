@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
