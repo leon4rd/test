@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Our wedding was so beautiful, even the cake was in tiers.
