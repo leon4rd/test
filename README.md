@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## What time did the man go to the dentist? Tooth hurt-y.
