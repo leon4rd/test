@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
