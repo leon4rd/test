@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Don't tell secrets in corn fields. Too many ears around.
