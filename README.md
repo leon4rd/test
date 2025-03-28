@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## I just wrote a book on reverse psychology. Do not read it!
