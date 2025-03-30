@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
