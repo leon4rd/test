@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
