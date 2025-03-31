@@ -1,1 +1,1 @@
-## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
+## Dad, can you put my shoes on? I don't think they'll fit me.
