@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## I thought about going on an all-almond diet. But that's just nuts.
