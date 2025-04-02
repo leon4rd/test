@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
