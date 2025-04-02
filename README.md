@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What do you call corn that joins the army? Kernel.
