@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
