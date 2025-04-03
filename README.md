@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Why are snake races so exciting? They're always neck and neck.
