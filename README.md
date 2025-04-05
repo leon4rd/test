@@ -1,1 +1,2 @@
-## I boiled a funny bone last night and had a laughing stock
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
