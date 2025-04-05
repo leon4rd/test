@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## I boiled a funny bone last night and had a laughing stock
