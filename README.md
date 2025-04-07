@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
