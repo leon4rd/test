@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## There's not really any training for garbagemen. They just pick things up as they go.
