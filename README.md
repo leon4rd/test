@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
