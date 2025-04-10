@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
