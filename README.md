@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
