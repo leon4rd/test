@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
