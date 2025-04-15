@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## I heard there was a new store called Moderation. They have everything there
