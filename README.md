@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
