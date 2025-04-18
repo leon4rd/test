@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Chances are if you' ve seen one shopping center, you've seen a mall.
