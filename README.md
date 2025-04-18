@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Why did the half blind man fall in the well? Because he couldn't see that well!
