@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## How do you make holy water? You boil the hell out of it.
