@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Writing with a broken pencil is pointless.
