@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
