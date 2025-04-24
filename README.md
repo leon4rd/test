@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
