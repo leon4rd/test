@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
