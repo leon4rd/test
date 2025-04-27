@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
