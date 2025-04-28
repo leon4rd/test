@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## It takes guts to be an organ donor.
