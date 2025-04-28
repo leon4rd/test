@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## If at first you don't succeed, sky diving is not for you!
