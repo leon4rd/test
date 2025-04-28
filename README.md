@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
