@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
