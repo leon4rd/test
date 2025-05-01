@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## What did the digital clock say to the grandfather clock? Look, no hands!
