@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
