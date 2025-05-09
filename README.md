@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## How does a scientist freshen their breath? With experi-mints!
