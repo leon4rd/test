@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## Where did Captain Hook get his hook? From a second hand store.
