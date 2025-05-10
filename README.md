@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What do you get when you cross a pig and a pineapple? A porky pine
