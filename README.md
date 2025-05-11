@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## A termite walks into a bar and asks “Is the bar tender here?”
