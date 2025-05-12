@@ -1,2 +1,1 @@
-## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
-## I know he means well.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
