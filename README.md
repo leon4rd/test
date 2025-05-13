@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## I wanted to be a tailor but I didn't suit the job
