@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Chances are if you' ve seen one shopping center, you've seen a mall.
