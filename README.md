@@ -1,1 +1,3 @@
-## I wanted to be a tailor but I didn't suit the job
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
