@@ -1,1 +1,3 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
