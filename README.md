@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
