@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
