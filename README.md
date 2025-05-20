@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
