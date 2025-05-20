@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
