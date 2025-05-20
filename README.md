@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
