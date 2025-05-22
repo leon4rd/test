@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## How do you organize a space party? You planet.
