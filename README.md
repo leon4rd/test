@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## If I could name myself after any Egyptian god, I'd be Set.
