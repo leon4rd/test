@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
