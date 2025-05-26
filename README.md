@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## No matter how kind you are, German children are kinder.
