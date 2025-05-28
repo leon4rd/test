@@ -1,1 +1,2 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
