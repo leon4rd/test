@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
