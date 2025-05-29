@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
