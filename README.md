@@ -1,1 +1,1 @@
-## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
