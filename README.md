@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Who did the wizard marry? His ghoul-friend
