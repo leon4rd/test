@@ -1,1 +1,3 @@
-## What is a centipedes's favorite Beatle song?  I want to hold your hand, hand, hand, hand...
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
