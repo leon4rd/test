@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## I tried to write a chemistry joke, but could never get a reaction.
