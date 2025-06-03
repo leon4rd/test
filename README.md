@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Why are graveyards so noisy? Because of all the coffin.
