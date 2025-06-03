@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## What do you call an alligator in a vest? An in-vest-igator!
