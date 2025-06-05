@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
