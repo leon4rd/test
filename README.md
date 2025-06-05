@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
