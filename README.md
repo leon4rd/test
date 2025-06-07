@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
