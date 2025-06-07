@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
