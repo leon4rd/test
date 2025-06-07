@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## My boss told me to have a good day... so I went home.
