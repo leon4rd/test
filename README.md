@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Why are fish so smart? Because they live in schools!
