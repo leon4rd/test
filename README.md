@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
