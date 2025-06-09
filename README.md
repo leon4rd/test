@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Where do young cows eat lunch? In the calf-ateria.
