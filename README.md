@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
