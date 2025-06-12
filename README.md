@@ -1,1 +1,2 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
