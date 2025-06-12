@@ -1,2 +1,3 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
