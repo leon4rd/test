@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
