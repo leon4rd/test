@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
