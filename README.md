@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
