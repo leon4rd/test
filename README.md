@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
