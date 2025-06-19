@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## I’ll tell you something about German sausages, they’re the wurst
