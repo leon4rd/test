@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
