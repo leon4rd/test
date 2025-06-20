@@ -1,1 +1,1 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## People who don't eat gluten are really going against the grain.
