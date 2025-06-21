@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
