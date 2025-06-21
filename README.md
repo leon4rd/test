@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
