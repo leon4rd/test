@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## What did the ocean say to the beach? Thanks for all the sediment.
