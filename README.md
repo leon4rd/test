@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## I ordered a chicken and an egg from Amazon. I'll let you know.
