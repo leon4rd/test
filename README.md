@@ -1,1 +1,2 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## Why did the cookie cry?
+## Because his mother was a wafer so long
