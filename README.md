@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Just read a few facts about frogs. They were ribbiting.
