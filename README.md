@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
