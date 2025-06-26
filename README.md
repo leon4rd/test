@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
