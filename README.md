@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
