@@ -1,1 +1,3 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
