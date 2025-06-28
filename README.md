@@ -1,1 +1,1 @@
-## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+## I wouldn't buy anything with velcro. It's a total rip-off.
