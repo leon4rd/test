@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## Our wedding was so beautiful, even the cake was in tiers.
