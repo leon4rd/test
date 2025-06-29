@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## No matter how kind you are, German children are kinder.
