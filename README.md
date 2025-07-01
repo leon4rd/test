@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
