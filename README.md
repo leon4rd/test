@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
