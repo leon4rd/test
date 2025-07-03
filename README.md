@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## What do you call a duck that gets all A's? A wise quacker.
