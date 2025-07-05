@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
