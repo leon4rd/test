@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
