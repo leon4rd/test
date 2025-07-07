@@ -1,1 +1,1 @@
-## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
