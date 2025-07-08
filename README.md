@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
