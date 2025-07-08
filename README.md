@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
