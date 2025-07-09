@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## I’m on a whiskey diet. I’ve lost three days already.
