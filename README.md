@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
