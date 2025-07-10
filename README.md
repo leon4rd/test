@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
