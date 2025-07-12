@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
