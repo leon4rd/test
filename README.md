@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
