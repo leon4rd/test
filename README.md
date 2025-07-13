@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
