@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## How does a French skeleton say hello? Bone-jour.
