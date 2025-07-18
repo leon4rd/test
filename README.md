@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
