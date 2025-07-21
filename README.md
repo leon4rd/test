@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## I just got fired from a florist, apparently I took too many leaves.
