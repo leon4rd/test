@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
