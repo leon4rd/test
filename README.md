@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## How many South Americans does it take to change a lightbulb? A Brazilian
