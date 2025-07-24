@@ -1,1 +1,2 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
