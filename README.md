@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## What did the calculator say to the student? You can count on me.
