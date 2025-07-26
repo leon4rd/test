@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
