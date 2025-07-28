@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## What did the dog say to the two trees? Bark bark.
