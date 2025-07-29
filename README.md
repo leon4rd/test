@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
