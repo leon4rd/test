@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## How come the stadium got hot after the game? Because all of the fans left.
