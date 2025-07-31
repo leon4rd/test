@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
