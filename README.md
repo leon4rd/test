@@ -1,1 +1,1 @@
-## I used to think I was indecisive, but now I'm not sure.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
