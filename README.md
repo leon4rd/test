@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## If I could name myself after any Egyptian god, I'd be Set.
