@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## I've got a joke about vegetables for you... but it's a bit corny.
