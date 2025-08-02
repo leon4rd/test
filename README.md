@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## I remember when I was a kid, I opened my fridge and noticed one of my vegetables were crying. I guess I have some emotional cabbage.
