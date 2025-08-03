@@ -1,1 +1,2 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
