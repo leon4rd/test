@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## How do you organize a space party? You planet.
