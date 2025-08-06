@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## How was the snow globe feeling after the storm? A little shaken.
