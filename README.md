@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Thanks for explaining the word "many" to me. It means a lot.
