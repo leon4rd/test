@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## How do you find Will Smith in the snow?  Look for fresh prints.
