@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Why are fish easy to weigh? Because they have their own scales.
