@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## My first time using an elevator was an uplifting experience. The second time let me down.
