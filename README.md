@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
