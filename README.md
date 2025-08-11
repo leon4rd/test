@@ -1,1 +1,1 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
