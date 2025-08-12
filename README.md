@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## Why is the ocean always blue? Because the shore never waves back.
