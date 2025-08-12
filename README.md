@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Dad, can you put my shoes on? I don't think they'll fit me.
