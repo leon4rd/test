@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What did the grape do when he got stepped on? He let out a little wine.
