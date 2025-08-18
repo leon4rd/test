@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
