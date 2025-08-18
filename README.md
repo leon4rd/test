@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
