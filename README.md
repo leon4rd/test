@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
