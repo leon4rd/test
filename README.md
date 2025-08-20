@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
