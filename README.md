@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
