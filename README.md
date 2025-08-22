@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## This is my step ladder. I never knew my real ladder.
