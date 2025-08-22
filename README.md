@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## What does a clock do when it's hungry? It goes back four seconds!
