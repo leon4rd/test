@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## My dentist is the best, he even has a little plaque!
