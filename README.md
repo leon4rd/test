@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## How can you tell a vampire has a cold? They start coffin.
