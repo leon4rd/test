@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
