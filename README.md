@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## I wouldn't buy anything with velcro. It's a total rip-off.
