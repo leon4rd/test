@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
