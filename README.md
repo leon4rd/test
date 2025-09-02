@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Where does astronauts hangout after work? At the spacebar.
