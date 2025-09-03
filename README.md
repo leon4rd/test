@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Why are skeletons so calm? Because nothing gets under their skin.
