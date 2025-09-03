@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
