@@ -1,1 +1,2 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
