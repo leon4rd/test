@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## What is the tallest building in the world? The library – it’s got the most stories!
