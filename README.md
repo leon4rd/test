@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## What kind of pants do ghosts wear? Boo jeans.
