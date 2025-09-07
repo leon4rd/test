@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
