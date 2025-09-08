@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## What do you call a cow with no legs? Ground beef.
