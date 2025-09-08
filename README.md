@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
