@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Why do birds fly south for the winter? Because it's too far to walk.
