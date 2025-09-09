@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
