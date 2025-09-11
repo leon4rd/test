@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
