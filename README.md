@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
