@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
