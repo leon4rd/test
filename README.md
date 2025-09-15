@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## A termite walks into a bar and asks “Is the bar tender here?”
