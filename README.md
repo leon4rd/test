@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## I decided to sell my Hoover… well it was just collecting dust.
