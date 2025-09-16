@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
