@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
