@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## People are making apocalypse jokes like there’s no tomorrow.
