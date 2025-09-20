@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
