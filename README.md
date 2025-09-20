@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## What do you call a cow with two legs? Lean beef.
