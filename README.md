@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## What's the best thing about elevator jokes? They work on so many levels.
