@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Where do sheep go to get their hair cut? The baa-baa shop.
