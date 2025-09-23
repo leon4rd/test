@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Why didn’t the skeleton cross the road? Because he had no guts.
