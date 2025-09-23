@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## What kind of music do planets listen to? Nep-tunes.
