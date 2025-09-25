@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
