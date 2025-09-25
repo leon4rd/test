@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## What do you call a cow with no legs? Ground beef.
