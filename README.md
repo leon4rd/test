@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
