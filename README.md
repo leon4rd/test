@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## I met this girl on a dating site and, I don't know, we just clicked.
