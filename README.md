@@ -1,1 +1,2 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
