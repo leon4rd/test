@@ -1,1 +1,3 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
