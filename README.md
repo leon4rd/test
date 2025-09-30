@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
