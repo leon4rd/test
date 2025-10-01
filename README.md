@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
