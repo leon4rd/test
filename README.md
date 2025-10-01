@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## “My Dog has no nose.” “How does he smell?” “Awful”
