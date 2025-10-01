@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
