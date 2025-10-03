@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## How does a French skeleton say hello? Bone-jour.
