@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
