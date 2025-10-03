@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
