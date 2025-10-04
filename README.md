@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
