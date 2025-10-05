@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What creature is smarter than a talking parrot? A spelling bee.
