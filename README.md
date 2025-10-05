@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
