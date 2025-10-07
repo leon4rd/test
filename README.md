@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Two silk worms had a race. They ended up in a tie.
