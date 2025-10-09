@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## If I could name myself after any Egyptian god, I'd be Set.
