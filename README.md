@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## I've got a joke about vegetables for you... but it's a bit corny.
