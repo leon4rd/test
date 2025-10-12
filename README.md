@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
