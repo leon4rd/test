@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## How do you find Will Smith in the snow?  Look for fresh prints.
