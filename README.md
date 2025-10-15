@@ -1,1 +1,2 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## What is red and smells like blue paint?
+## Red paint!
