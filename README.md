@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## I went to the doctor today and he told me I had type A blood but it was a type O.
