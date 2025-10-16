@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
