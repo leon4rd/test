@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
