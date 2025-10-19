@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
