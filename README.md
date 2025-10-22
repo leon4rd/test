@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
