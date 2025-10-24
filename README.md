@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## How do you steal a coat? You jacket.
