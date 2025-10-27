@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
