@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
