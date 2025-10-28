@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
