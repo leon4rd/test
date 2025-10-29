@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## People are shocked to discover I have a police record but I love their greatest hits!
