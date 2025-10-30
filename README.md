@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## How come the stadium got hot after the game? Because all of the fans left.
