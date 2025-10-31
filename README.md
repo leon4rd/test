@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
