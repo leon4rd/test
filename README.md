@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
