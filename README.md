@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## This furniture store keeps emailing me, all I wanted was one night stand!
