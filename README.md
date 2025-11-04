@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## The rotation of earth really makes my day.
