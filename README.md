@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
