@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
