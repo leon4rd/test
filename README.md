@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
