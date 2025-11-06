@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Why do fish live in salt water? Because pepper makes them sneeze!
