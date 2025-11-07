@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## Why do ducks make great detectives? They always quack the case.
