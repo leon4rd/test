@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Why don't sharks eat clowns?  Because they taste funny.
