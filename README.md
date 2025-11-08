@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## What was a more important invention than the first telephone? The second one.
