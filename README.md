@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What is the hardest part about sky diving? The ground.
