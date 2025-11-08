@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What did the shy pebble wish for? That she was a little boulder.
