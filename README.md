@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
