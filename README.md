@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Why are ghosts bad liars? Because you can see right through them!
