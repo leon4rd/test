@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
