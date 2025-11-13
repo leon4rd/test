@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
