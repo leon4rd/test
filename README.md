@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
