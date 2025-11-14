@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Have you heard about corduroy pillows?  They're making headlines!
