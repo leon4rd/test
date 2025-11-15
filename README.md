@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
