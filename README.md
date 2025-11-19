@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
