@@ -1,1 +1,3 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
