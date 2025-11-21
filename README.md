@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## It doesn't matter how much you push the envelope. It will still be stationary.
