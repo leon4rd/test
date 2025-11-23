@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
