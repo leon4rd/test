@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
