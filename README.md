@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
