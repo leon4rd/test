@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## What did the pirate say on his 80th birthday? Aye Matey!
