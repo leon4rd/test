@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## An apple a day keeps the bullies away. If you throw it hard enough.
