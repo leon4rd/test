@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## How do you organize a space party? You planet.
