@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
