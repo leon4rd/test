@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Did you know that ghosts call their true love their ghoul-friend?
