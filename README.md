@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## My wife said I was immature. So I told her to get out of my fort.
