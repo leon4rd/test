@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## It doesn't matter how much you push the envelope. It will still be stationary.
