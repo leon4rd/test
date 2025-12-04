@@ -1,1 +1,2 @@
-## Did you hear about the submarine industry? It really took a dive...
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
