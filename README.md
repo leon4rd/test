@@ -1,1 +1,1 @@
-## Can February march? No, but April may.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
