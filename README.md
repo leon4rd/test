@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
