@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Where does astronauts hangout after work? At the spacebar.
