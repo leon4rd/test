@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
