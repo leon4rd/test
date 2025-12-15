@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Man, I really love my furniture... me and my recliner go way back.
