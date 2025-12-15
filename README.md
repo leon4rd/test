@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
