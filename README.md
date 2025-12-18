@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## When does a joke become a dad joke? When it becomes apparent.
