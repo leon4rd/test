@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
