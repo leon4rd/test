@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## I just broke my guitar. It's okay, I won't fret
