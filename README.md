@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
