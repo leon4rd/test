@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
