@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
