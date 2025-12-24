@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## An apple a day keeps the bullies away. If you throw it hard enough.
