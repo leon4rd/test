@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
