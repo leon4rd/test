@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## How many South Americans does it take to change a lightbulb? A Brazilian
