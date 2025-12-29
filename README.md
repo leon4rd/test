@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## How many bones are in the human hand? A handful of them.
