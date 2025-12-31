@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
