@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
