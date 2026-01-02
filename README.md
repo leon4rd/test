@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## New atoms frequently lose electrons when they fail to keep an ion them.
