@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
