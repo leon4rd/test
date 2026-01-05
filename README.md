@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## I have kleptomania, but when it gets bad, I take something for it.
