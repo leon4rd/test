@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
