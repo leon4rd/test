@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
