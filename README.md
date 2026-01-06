@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
