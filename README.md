@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## What kind of tree fits in your hand? A palm tree!
