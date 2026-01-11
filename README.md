@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
