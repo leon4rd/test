@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
