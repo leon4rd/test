@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
