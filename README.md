@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
