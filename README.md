@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
