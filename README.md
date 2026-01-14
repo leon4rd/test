@@ -1,1 +1,2 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
