@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
