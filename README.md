@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## I used to be a banker, but I lost interest.
