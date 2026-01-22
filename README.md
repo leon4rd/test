@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Why does Superman get invited to dinners? Because he is a Supperhero.
