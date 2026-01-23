@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
