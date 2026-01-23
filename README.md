@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Never take advice from electrons. They are always negative.
