@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
