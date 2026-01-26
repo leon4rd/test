@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## What do you call corn that joins the army? Kernel.
