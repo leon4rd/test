@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
