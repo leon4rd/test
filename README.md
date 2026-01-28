@@ -1,1 +1,2 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
