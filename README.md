@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
