@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## Sore throats are a pain in the neck!
