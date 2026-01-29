@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## How do you get two whales in a car? Start in England and drive West.
