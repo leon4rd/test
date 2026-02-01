@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
