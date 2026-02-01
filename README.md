@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
