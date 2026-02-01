@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
