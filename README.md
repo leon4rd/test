@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
