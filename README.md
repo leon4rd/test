@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## Why are mummys scared of vacation? They're afraid to unwind.
