@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
