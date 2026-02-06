@@ -1,1 +1,3 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
