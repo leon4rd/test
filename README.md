@@ -1,1 +1,1 @@
-## People are shocked to discover I have a police record but I love their greatest hits!
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
