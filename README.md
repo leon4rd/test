@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## Did you know that ghosts call their true love their ghoul-friend?
