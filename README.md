@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
