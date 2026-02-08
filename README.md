@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
