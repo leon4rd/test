@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
