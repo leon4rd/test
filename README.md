@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Why are fish so smart? Because they live in schools!
