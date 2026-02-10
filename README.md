@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## A termite walks into a bar and asks “Is the bar tender here?”
