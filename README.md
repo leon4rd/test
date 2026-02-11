@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
