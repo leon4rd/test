@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
