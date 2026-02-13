@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## When does a joke become a dad joke? When it becomes apparent.
