@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
