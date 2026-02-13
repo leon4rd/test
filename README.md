@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Where did Captain Hook get his hook? From a second hand store.
