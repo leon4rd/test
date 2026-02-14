@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
