@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
