@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## What does a clock do when it's hungry? It goes back four seconds!
