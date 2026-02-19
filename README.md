@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
