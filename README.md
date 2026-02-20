@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## What's orange and sounds like a parrot? A Carrot.
