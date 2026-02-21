@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Why do pirates not know the alphabet? They always get stuck at "C".
