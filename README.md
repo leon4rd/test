@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## What do you call a cow with no legs? Ground beef.
