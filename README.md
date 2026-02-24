@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## A Skeleton walked into a bar he said I need a beer and a mop
