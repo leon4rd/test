@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
