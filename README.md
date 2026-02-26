@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
