@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What creature is smarter than a talking parrot? A spelling bee.
