@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Thanks for explaining the word "many" to me. It means a lot.
