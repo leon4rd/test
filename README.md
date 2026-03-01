@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Why are snake races so exciting? They're always neck and neck.
