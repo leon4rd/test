@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
