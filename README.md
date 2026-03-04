@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
