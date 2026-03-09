@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## I've got a joke about vegetables for you... but it's a bit corny.
