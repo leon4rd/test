@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
