@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## Me and my mates are in a band called Duvet. We're a cover band.
