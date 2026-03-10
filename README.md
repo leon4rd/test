@@ -1,1 +1,2 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
