@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
