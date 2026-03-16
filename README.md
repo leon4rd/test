@@ -1,1 +1,2 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
