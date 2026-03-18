@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
