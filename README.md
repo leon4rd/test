@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
