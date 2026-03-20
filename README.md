@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Conjunctivitis.com – now that’s a site for sore eyes.
