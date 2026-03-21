@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Why are basketball players messy eaters? Because they are always dribbling.
