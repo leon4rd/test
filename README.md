@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
