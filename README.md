@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Breaking news! Energizer Bunny arrested – charged with battery.
