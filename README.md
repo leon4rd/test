@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
