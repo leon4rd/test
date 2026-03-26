@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
