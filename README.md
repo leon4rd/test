@@ -1,1 +1,2 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## What is the best way to carve?
+## Whittle by whittle.
