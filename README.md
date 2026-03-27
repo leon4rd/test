@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## The rotation of earth really makes my day.
