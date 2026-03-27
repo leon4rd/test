@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
