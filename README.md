@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## It takes guts to be an organ donor.
