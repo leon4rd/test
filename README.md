@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
