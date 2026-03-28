@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## I don't trust stairs. They're always up to something.
