@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## Why did the house go to the doctor? It was having window panes.
