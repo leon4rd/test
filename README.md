@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
