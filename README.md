@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
