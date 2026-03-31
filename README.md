@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## How do the trees get on the internet? They log on.
