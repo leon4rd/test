@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## What's a ninja's favorite type of shoes? Sneakers!
