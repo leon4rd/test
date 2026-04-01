@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
