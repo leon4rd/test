@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
