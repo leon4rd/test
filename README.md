@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## Why didn’t the skeleton cross the road? Because he had no guts.
