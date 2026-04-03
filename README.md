@@ -1,1 +1,1 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## Me and my mates are in a band called Duvet. We're a cover band.
