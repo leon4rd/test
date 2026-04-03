@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## If at first you don't succeed, sky diving is not for you!
