@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
