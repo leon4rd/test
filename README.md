@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What do you call a group of killer whales playing instruments? An Orca-stra.
