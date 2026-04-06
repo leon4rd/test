@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
