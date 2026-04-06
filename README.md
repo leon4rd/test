@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
