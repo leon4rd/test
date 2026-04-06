@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
