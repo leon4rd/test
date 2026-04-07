@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
