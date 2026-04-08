@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
