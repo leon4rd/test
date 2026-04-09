@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
