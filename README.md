@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
