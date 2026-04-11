@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
