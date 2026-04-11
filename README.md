@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
