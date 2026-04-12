@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## I gave all my dead batteries away today, free of charge.
