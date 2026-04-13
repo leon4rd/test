@@ -1,1 +1,2 @@
-## What is a witch's favorite subject in school? Spelling!
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
