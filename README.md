@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## Man, I really love my furniture... me and my recliner go way back.
