@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
