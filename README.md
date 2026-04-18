@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Thanks for explaining the word "many" to me. It means a lot.
