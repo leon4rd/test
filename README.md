@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## The rotation of earth really makes my day.
