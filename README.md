@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
