@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Why did the tree go to the dentist? It needed a root canal.
