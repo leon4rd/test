@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
