@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## My wife said I was immature. So I told her to get out of my fort.
