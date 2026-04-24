@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
