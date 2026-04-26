@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
