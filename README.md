@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What do you call two guys hanging out by your window? Kurt & Rod.
