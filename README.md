@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
