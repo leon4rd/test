@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Why did the melons plan a big wedding? Because they cantaloupe!
