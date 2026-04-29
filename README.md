@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## How do you steal a coat? You jacket.
