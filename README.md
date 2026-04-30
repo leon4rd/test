@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
