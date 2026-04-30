@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
