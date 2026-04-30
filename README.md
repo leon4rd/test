@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## I asked a frenchman if he played video games. He said "Wii"
