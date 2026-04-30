@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
