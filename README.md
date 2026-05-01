@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What did the ocean say to the beach? Thanks for all the sediment.
