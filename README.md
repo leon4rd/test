@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
