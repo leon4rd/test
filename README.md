@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## I ordered a chicken and an egg from Amazon. I'll let you know.
