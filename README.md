@@ -1,1 +1,1 @@
-## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
+## I've got a joke about vegetables for you... but it's a bit corny.
