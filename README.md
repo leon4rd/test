@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Why are mummys scared of vacation? They're afraid to unwind.
