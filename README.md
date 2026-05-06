@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## How can you tell a vampire has a cold? They start coffin.
