@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## I've started telling everyone about the benefits of eating dried grapes. It's all about raisin awareness.
