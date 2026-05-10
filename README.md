@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Why did the chicken get a penalty? For fowl play.
