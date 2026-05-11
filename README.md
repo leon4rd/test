@@ -1,1 +1,2 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
