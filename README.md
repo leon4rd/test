@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
