@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## A farmer had 297 cows, when he rounded them up, he found he had 300
