@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
