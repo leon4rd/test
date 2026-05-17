@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
