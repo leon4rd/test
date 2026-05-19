@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Me and my mates are in a band called Duvet. We're a cover band.
