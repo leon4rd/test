@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
