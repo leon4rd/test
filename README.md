@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
