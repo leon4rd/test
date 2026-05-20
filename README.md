@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
