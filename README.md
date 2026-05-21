@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
