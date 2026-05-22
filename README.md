@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
