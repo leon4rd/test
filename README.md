@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
