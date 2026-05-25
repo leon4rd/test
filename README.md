@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
