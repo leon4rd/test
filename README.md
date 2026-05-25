@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Where did Captain Hook get his hook? From a second hand store.
