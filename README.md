@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
