@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
