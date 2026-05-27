@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## People are making apocalypse jokes like there’s no tomorrow.
