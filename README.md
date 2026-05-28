@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
