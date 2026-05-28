@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
