@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Where do young cows eat lunch? In the calf-ateria.
