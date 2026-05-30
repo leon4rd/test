@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
