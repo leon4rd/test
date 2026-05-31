@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## What kind of bagel can fly? A plain bagel.
