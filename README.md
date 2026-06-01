@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
