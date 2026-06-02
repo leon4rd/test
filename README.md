@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## Atheism is a non-prophet organisation.
