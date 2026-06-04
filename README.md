@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
