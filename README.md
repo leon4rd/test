@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## I used to hate facial hair, but then it grew on me.
