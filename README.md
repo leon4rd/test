@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## You can't trust a ladder. It will always let you down
