@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Someone asked me to name two structures that hold water. I said "Well dam"
