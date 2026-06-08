@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
