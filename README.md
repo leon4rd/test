@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
