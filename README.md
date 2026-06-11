@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
