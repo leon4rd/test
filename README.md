@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Why did the banana go to the doctor? He was not "peeling" well.
