@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
