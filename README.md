@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## How was the snow globe feeling after the storm? A little shaken.
