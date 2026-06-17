@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## Why do bees have sticky hair? Because they use honey combs!
