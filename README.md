@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Remember, the best angle to approach a problem from is the "try" angle.
