@@ -1,5 +1,1 @@
-## A panda walks into a bar and says to the bartender “I’ll have a Scotch and . . . . . . . . . . . . . . Coke thank you”. 
-## 
-## “Sure thing” the bartender replies and asks “but what’s with the big pause?” 
-## 
-## The panda holds up his hands and says “I was born with them”
+## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
