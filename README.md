@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
