@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## Why did the man put his money in the freezer? He wanted cold hard cash!
