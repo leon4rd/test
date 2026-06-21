@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## I was in an 80's band called the prevention. We were better than the cure.
