@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## I don't trust sushi, there's something fishy about it.
