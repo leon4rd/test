@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Conjunctivitis.com – now that’s a site for sore eyes.
