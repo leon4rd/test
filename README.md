@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
