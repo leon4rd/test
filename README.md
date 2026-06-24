@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
