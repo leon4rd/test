@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## How does a French skeleton say hello? Bone-jour.
