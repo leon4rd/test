@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Sore throats are a pain in the neck!
