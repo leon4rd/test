@@ -1,1 +1,2 @@
-## What is a witch's favorite subject in school? Spelling!
+## Why did the cookie cry?
+## Because his mother was a wafer so long
