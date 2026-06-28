@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## Why do choirs keep buckets handy? So they can carry their tune
