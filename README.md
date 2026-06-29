@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Have you ever seen fruit preserves being made? It's jarring.
