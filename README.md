@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Our wedding was so beautiful, even the cake was in tiers.
