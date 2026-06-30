@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## It doesn't matter how much you push the envelope. It will still be stationary.
