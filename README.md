@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Why are skeletons so calm? Because nothing gets under their skin.
