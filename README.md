@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
