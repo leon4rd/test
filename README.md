@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Why was the strawberry sad? Its parents were in a jam.
