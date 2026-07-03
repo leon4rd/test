@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## What do you get when you cross a bee and a sheep? A bah-humbug.
