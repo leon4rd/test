@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## The urge to sing the Lion King song is just a whim away.
