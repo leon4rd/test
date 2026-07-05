@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
