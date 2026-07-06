@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## How come the stadium got hot after the game? Because all of the fans left.
