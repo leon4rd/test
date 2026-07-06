@@ -1,3 +1,1 @@
-## Doctor: Do you want to hear the good news or the bad news?
-## Patient: Good news please.
-## Doctor: we're naming a disease after you.
+## I can't take my dog to the pond anymore because the ducks keep attacking him. That's what I get for buying a pure bread dog.
