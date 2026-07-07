@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
