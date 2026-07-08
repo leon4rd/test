@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## What is a tornado's favorite game to play? Twister!
