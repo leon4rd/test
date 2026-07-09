@@ -1,1 +1,1 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
