@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## What do you call two guys hanging out by your window? Kurt & Rod.
