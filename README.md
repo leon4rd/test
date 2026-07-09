@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
