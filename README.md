@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## I was in an 80's band called the prevention. We were better than the cure.
