@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
