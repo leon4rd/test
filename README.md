@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
