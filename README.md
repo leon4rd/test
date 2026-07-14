@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
