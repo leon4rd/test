@@ -1,1 +1,1 @@
-## What do you call cheese by itself? Provolone.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
