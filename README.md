@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
