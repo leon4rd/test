@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
