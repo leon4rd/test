@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Why was the strawberry sad? Its parents were in a jam.
