@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## I considered building the patio by myself. But I didn't have the stones.
