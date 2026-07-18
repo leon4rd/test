@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## Did you hear about the kidnapping at school? It's ok, he woke up.
