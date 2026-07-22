@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## Why did the kid cross the playground? To get to the other slide.
