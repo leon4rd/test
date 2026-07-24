@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
