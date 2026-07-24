@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Toasters were the first form of pop-up notifications.
