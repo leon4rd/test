@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
