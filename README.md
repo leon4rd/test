@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## What did the pirate say on his 80th birthday? Aye Matey!
