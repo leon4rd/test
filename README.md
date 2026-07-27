@@ -1,1 +1,2 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
