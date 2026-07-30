@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## Why did the banana go to the doctor? He was not "peeling" well.
