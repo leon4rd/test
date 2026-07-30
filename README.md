@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## What did the fish say when it swam into a wall? Damn!
