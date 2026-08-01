@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## When do doctors get angry? When they run out of patients.
