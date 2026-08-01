@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Why do crabs never give to charity? Because they’re shellfish.
