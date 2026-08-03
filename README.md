@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
