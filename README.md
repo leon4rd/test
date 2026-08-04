@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## How do hens stay fit? They always egg-cercise!
