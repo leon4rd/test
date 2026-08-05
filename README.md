@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
