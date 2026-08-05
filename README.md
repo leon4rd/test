@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Some people eat light bulbs. They say it's a nice light snack.
