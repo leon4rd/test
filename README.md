@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## Why didn’t the orange win the race? It ran out of juice.
