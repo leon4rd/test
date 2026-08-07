@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
