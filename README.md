@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## What's orange and sounds like a parrot? A Carrot.
