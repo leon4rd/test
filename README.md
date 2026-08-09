@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Don't trust atoms. They make up everything.
