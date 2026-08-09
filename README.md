@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## What’s brown and sounds like a bell? Dung!
