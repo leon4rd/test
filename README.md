@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
