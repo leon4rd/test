@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## What did the ocean say to the shore? Nothing, it just waved.
