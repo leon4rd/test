@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
