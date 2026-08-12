@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## I had a dream that I was a muffler last night. I woke up exhausted!
