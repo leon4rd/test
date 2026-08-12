@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
