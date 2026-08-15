@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
