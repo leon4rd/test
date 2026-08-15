@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Don't tell secrets in corn fields. Too many ears around.
