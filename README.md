@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
