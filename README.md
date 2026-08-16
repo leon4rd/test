@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
