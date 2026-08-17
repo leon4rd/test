@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
