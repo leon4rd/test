@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
