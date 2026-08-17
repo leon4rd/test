@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
