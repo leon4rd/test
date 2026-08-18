@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
