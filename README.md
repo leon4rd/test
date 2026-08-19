@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
