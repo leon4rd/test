@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## I was wondering why the frisbee was getting bigger, then it hit me.
