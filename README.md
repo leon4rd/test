@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
