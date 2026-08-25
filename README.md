@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
