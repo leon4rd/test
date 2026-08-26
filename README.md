@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## What's brown and sticky? A stick.
