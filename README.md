@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
