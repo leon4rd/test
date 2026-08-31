@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
