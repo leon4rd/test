@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
