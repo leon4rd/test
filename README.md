@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## What did the calculator say to the student? You can count on me.
