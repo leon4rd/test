@@ -1,1 +1,2 @@
-## I once lost a banana at court but then I appealed. 
+## What is red and smells like blue paint?
+## Red paint!
