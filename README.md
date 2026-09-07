@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
