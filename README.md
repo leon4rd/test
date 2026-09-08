@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
