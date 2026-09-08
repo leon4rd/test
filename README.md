@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Why did the kid cross the playground? To get to the other slide.
