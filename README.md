@@ -1,1 +1,2 @@
-## What kind of award did the dentist receive? A little plaque.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
