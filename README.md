@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
