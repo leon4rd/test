@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
