@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
