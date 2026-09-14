@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## People are making apocalypse jokes like there’s no tomorrow.
