@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## How does the moon cut his hair? Eclipse it.
