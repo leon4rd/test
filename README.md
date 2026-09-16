@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## Why do bees have sticky hair? Because they use honey combs!
