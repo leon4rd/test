@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## I considered building the patio by myself. But I didn't have the stones.
