@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Why did the coffee file a police report? It got mugged.
