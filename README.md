@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What do you call a monkey in a mine field? A babooooom!
