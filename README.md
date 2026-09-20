@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
