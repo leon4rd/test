@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Why was the robot angry? Because someone kept pressing his buttons!
