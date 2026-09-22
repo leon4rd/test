@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
