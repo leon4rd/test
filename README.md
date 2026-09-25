@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## What concert costs only 45 cents? 50 cent featuring Nickelback.
