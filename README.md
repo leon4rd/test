@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
