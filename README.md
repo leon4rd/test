@@ -1,1 +1,2 @@
-## I got fired from the transmission factor, turns out I didn't put on enough shifts...
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
