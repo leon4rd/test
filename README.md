@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## What did the ocean say to the shore? Nothing, it just waved.
