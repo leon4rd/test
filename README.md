@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## What creature is smarter than a talking parrot? A spelling bee.
