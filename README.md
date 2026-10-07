@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What kind of pants do ghosts wear? Boo jeans.
