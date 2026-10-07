@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Where do young cows eat lunch? In the calf-ateria.
