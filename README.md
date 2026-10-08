@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## I don't trust stairs. They're always up to something.
