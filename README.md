@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
