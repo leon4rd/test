@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
