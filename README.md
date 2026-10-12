@@ -1,1 +1,1 @@
-## Which is the fastest growing city in the world? Dublin'
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
