@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
