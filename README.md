@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## What was a more important invention than the first telephone? The second one.
