@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
