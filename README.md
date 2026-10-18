@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
