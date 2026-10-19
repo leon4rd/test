@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Why do pirates not know the alphabet? They always get stuck at "C".
