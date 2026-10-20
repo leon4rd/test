@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
