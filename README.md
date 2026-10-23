@@ -1,1 +1,3 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
