@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
