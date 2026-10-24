@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What does a clock do when it's hungry? It goes back four seconds!
