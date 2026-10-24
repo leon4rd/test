@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## Man, I really love my furniture... me and my recliner go way back.
