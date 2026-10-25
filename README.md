@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## When does a joke become a dad joke? When it becomes apparent.
