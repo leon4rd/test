@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## Why did the feline fail the lie detector test? Because he be lion.
