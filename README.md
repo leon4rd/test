@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
