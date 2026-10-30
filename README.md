@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## What did the left eye say to the right eye? Between us, something smells!
