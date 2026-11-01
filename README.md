@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## What do you call a duck that gets all A's? A wise quacker.
