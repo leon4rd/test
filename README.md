@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## What do prisoners use to call each other? Cell phones.
