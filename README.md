@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Where do you learn to make banana splits? At sundae school.
