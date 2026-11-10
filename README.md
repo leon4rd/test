@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
