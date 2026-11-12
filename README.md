@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Two peanuts were walking down the street. One was a salted
