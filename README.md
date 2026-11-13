@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
