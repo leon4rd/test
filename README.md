@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Where do sheep go to get their hair cut? The baa-baa shop.
