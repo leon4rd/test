@@ -1,1 +1,1 @@
-## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
+## How do you find Will Smith in the snow?  Look for fresh prints.
