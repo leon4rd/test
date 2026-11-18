@@ -1,1 +1,1 @@
-## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
