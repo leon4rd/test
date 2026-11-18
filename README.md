@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
