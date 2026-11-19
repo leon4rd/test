@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## Why are graveyards so noisy? Because of all the coffin.
