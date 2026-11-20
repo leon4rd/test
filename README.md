@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
