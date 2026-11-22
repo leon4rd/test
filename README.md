@@ -1,1 +1,3 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
