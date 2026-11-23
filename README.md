@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## What do you call an alligator in a vest? An in-vest-igator!
