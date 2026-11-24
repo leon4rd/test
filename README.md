@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## What's black and white and read all over? The newspaper.
