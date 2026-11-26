@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
