@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
