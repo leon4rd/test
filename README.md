@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## Without geometry life is pointless.
